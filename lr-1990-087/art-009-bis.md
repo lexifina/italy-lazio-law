@@ -1,0 +1,5 @@
+Art. 9 bis (6)
+(Licenza di pesca sportiva o dilettantistica)
+1. La licenza di pesca sportiva di tipo B consente l'esercizio della pesca sportiva o dilettantistica ed è costituita dalla ricevuta di versamento degli importi dovuti ai sensi della tabella A della legge regionale 29 aprile 2013, n. 2, concernente la misura delle tasse sulle concessioni regionali, in cui sono riportati i dati anagrafici del pescatore, nonché la causale del versamento. La ricevuta deve essere esibita unitamente a un documento d'identità valido.
+2. La licenza non è richiesta per l'esercizio della pesca sportiva o dilettantistica da parte dei cittadini residenti nel territorio della Regione di età inferiore ai diciotto anni o superiore ai sessantacinque e ai cittadini diversamente abili, di cui all'articolo 3 della legge 5 febbraio 1992, n. 104 (Legge quadro per l'assistenza, l'integrazione sociale e i diritti delle persone handicappate).
+3. Chi esercita la pesca sportiva o ricreativa dilettantistica deve essere in possesso di apposito tesserino segna catture, disciplinato dal regolamento di cui all'articolo 9 ter.
