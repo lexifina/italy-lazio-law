@@ -1,0 +1,32 @@
+Note:
+(1) Comma sostituito dall'articolo 35, comma 1, della legge regionale 14 aprile 2025, n. 4
+(1a) Termine modificato dall'articolo 18, comma 1, della legge regionale 31 dicembre 2025, n. 20 e successivamente dall'articolo 35, comma 1, della legge regionale 30 settembre 2026, n. 22
+(2) Comma inserito a seguito della sostituzione dei commi 67 e 68 ai sensi dell'articolo 35, comma 1, della legge regionale 14 aprile 2025, n. 4
+(2a) Comma sostituito dall'articolo 22, comma 96, della legge regionale 31 dicembre 2025, n. 20
+(2b) Comma modificato dall'articolo 12 della legge regionale 4 dicembre 2025, n. 18
+(2c) Comma modificato dall'articolo 36, comma 1, della legge regionale 26 giugno 2026, n. 11
+(3) Comma inserito dall'articolo 11, comma 1, della legge regionale 14 aprile 2025, n. 4
+(4) Comma abrogato dall'articolo 24, comma 5, della legge regionale 14 aprile 2025, n. 4
+(5) Vedi deliberazione della Giunta regionale 13 febbraio 2025, n. 75 (Fondo per le iniziative di promozione e valorizzazione del territorio regionale - l.r. 30/12/2024 n. 22, Art. 5 Programmazione delle risorse anno 2025 e definizione dei criteri e modalità per la concessioen dei contributi), pubblicata sul Bollettino ufficiale della Regione 18 febbraio 2025, n. 14
+(5a) Comma sostituito dall'articolo 28, comma 1, lettera a), della legge regionale 8 agosto 2025, n. 15
+(5a.1) Lettera abrogata dall'articolo 22, comma 80, della legge regionale 31 dicembre 2025, n. 20
+(5a.2) Vedi deliberazione Giunta regionale 23 maggio 2025, n. 369 (Attuazione del "Programma straordinario regionale di investimenti pubblici", di cui all'art.6 della legge regionale n.22 del 30 dicembre 2024, annualità 2025-2027. - Modalità di presentazione delle domande di contributo e criteri di selezione per la realizzazione di interventi nelle macro-classi settoriali: infrastrutture pubbliche e sociali - viabilità e mobilità.), pubblicata sul Bollettino ufficiale della Regione 29 maggio 2025, n. 43
+(5b) Comma abrogato dall'articolo 28, comma 1, lettera b), della legge regionale 8 agosto 2025, n. 15
+(6) Comma modificato dall'articolo 44, comma 1, lettera a), della legge regionale 30 settembre 2026, n. 22
+(6a) Comma inserito dall'articolo 44, comma 1, lettera b), della legge regionale 30 settembre 2026, n. 22
+(6b) Lettera sostituita dall'articolo 44, comma 1, lettera c), numero 1), della legge regionale 30 saettembre 2026, n. 22
+(6c) Lettera modificata dall'articolo 44, comma 1, lettera c), numero 2), della legge regionale 30 settembre 2026, n. 22
+(6d) Comma modificato dall'articolo 44, comma 1, lettera d), della legge regionale 30 settembre 2026, n. 22
+(6e) Comma aggiunto dall'articolo 44, comma 1, lettera e), della legge regionale 30 settembre 2026, n. 22
+(6a) Comma sostituito dall'articolo 12, comma 1, della legge regionale 31 dicembre 2025, n. 20
+(7) Vedi deliberazione della Giunta regionale 20 marzo 2025, n. 148 (Legge di stabilità regionale 2025 art. 13 comma 42-43 "Contributi straordinari a sostegno delle attività professionali dei maestri di sci e delle scuole di sci per la ridotta apertura al pubblico della stagione sciistica invernale 2023/2024". Finalizzazione delle risorse, approvazione dello schema di convenzione con il Collegio regionale dei maestri di sci del Lazio e dei criteri per l'attribuzione dei contributi), pubblicata sul Bolltettino ufficiale della Regione 25 marzo 2025, n. 24
+(7a) Vedi determinazione regionale 9 aprile 2025, n. G04478 (Attuazione DGR n. 183/2025:"Finalizzazione delle risorse in conto capitale per la realizzazione di interventi funzionali e strumentali alle celebrazioni del Giubileo della Chiesa cattolica per l'anno 2025, annualità 2025. Legge regionale n. 23 del 29 dicembre 2023, art. 23, commi 8, 9 e 10 e s.m.i. e legge regionale n. 22 del 30 dicembre 2024, art. 13, commi 45-46". Perfezionamento prenotazione dell'impegno di spesa n. 48089/2025 per l'importo complessivo di Euro 875.000,00 a Creditori diversi (c.c. 3805) sul capitolo U0000B44524 "Fondo Regionale di attività di promozione del Giubileo 2025 - Parte in conto capitale § Contributi agli investimenti a Amministrazioni Locali" -Missione 07- Programma 01 - Esercizio finanziario 2025. Approvazione dell'Avviso Pubblico con relativa modulistica), pubblicata sul Bollettino ufficiale della Regione 10 aprile 2025, n. 29
+(7b) Comma modificato dall'articolo 21, comma 1, lettera a), della legge regionale 31 dicembre 2025, n. 20
+(7c) Lettera sostituita dall'articolo 21, comma 1, lettera b), numero 1), della legge regionale 31 dicembre 2025, n. 20
+(7d) Lettera aggiunta dall'articolo 21, comma 1, lettera b), numero 2), della legge regionale 31 dicembre 2025, n. 20
+(7e) Vedi deliberazione della Giunta regionale 02 ottobre 2025, n. 869 (Legge Regionale n. 22 del 30 dicembre 2024 art. 13 commi 70 - 73 - Contributo alle famiglie degli alunni e degli studenti con disabilità delle scuole paritarie primarie e secondarie di primo e secondo grado con ISEE non superiore a € 40.000,00 per le spese relative al sostegno - approvazione Linee guida su criteri e modalità per la concessione e la rendicontazione), pubblicata sul Bollettino ufficiale della Regione 07 ottobre 2025, n. 83
+(7f) Comma inserito dall'articolo 24, comma 1, della legge regionale 30 settembre 2026, n. 22
+(7g) Vedi deliberazione della Giunta regionale 21 novembre 2025, n. 21 (Regolamento di attuazione e integrazione dell'articolo 13, commi da 77 a 84, della legge regionale 30 dicembre 2024 n. 22 (Legge di Stabilità Regionale 2025), concernente la disciplina delle case funerarie e delle sale del commiato), pubblicata sul Bollettino ufficiale della Regione 25 novembre 2025, n. 97
+(8) Vedi deliberazione della Giunta regionale 27 febbraio 2025, n. 93 (Legge Regionale n. 22/2024, art. 13, cc. 92-94 "Celebrazioni in occasione dell'80 Anniversario della Liberazione), pubblicata sul Bollettino ufficiale della Regione 4 marzo 2025, n. 18
+(9) Vedi deliberazione della Giunta regionale 7 marzo 2025, n. 122 (L.R. n. 22 del 30 dicembre 2024, articolo 13, commi 114-116. Determinazione dei criteri e delle modalità per la ripartizione del contributo al fine di garantire l'efficacia e l'efficienza delle funzioni amministrative esercitate dalle Aziende territoriali per l'edilizia residenziale pubblica), pubblicata sul Bollettino ufficiale della Regione 13 marzo 2025, n. 21
+(10) Comma modificato dall'articolo 22, comma 33, della legge regionale 31 dicembre 2025, n. 20
