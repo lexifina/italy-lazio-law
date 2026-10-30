@@ -1,0 +1,2 @@
+L.R. 06 Dicembre 1979, n. 94
+Modifiche alla legge regionale concernente " Costituzione, organizzazione, gestione e funzionamento delle unita' sanitarie locali e coordinamento e integrazione dei servizi sociali con quelli sanitari, in attuazione della legge 23 dicembre 1978, N. 833, istitutiva del servizio sanitario nazionale e del decreto del presidente della repubblica 24 luglio 1977, N. 616 ", approvata nella seduta del 23 ottobre 1979. (1)
