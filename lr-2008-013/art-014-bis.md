@@ -1,0 +1,5 @@
+Art. 14 bis (2)
+(Fondo regionale per la promozione della ricerca e lo sviluppo dell'innovazione e del trasferimento tecnologico nella Regione Lazio)
+1. Nell'ambito del riordino e del potenziamento delle competenze in materia di ricerca ed innovazione tecnologica, è istituito il fondo regionale per la promozione della ricerca e lo sviluppo dell'innovazione e del trasferimento tecnologico nella Regione Lazio, di seguito denominato fondo, destinato al finanziamento degli interventi di cui agli articoli 7, 8 e 9.(2a)
+2. Alla realizzazione delle attività operative inerenti al fondo provvede la Società Finanziaria Laziale di Sviluppo SpA (Filas SpA). La Giunta regionale, con propria deliberazione, definisce le modalità per la gestione e l'utilizzo del fondo e individua gli interventi finanziabili, privilegiando le azioni che migliorano le ricadute sul sistema produttivo regionale, dell'attività di ricerca realizzata dalle università e dagli altri organismi di ricerca pubblici del Lazio. (3)
+3. Agli oneri derivanti dall'istituzione del fondo si provvede con gli stanziamenti di cui all'articolo 17, comma 1, lettera d).
