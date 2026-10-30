@@ -1,0 +1,9 @@
+Art.30 bis (59)
+(Adeguamenti tariffari)
+1. Fermi restando i principi in materia tariffaria definiti dal titolo IV della legge regionale 12 gennaio 1991, n. 1 (Disposizioni di prima attuazione per la regolamentazione delle materie di cui all'articolo 3 della legge 10 aprile 1981, n. 151 ed indirizzi circa i sistemi tariffari da applicarsi sui servizi di pubblico trasporto di persone di interesse locale), l'adeguamento delle tariffe non integrate viene richiesto dalle imprese esercenti agli enti affidanti entro il 30 settembre di ogni anno. L'ente affidante si pronuncia sulla richiesta entro novanta giorni, sulla base delle modalità stabilite dalla Regione ai sensi dell'articolo 6, comma 1, lettera g) ed in conformità alle indicazioni di cui al comma 2.
+2. L'ente affidante adegua le tariffe non integrate con il metodo del price-cap, inteso come limite massimo della variazione di prezzo vincolata per il periodo di durata dell'affidamento, in analogia a quanto stabilito dalla legge 14 novembre 1995, n. 481 (Norme per la concorrenza e la regolazione dei servizi di pubblica utilità. Istituzione delle Autorità di regolazione dei servizi di pubblica utilità).
+3. L'adeguamento di cui al comma 2, tiene conto, in particolare, dei seguenti criteri:
+a) tasso di inflazione programmata fissato dal Governo nell'ultimo documento di programmazione economico-finanziaria;
+b) obiettivo di variazione del tasso annuale di produttività, prefissato per il periodo di durata del contratto di servizio;
+c) obiettivo di miglioramento degli standard di qualità del servizio erogato alla clientela prefissati per il periodo di validità del contratto di servizio.
+4. La Regione, ai sensi della l.r. 1/1991, stabilisce ogni anno gli adeguamenti delle tariffe integrate in base al criterio di cui al comma 3, lettera a).
