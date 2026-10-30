@@ -1,0 +1,4 @@
+Art. 29 bis (15)
+(Competenze relative alle sanzioni amministrative pecuniarie)
+1. Le sanzioni amministrative pecuniarie di cui agli articoli 27 e 29 sono irrogate dai comuni competenti per territorio quali autorità amministrative competenti all'adozione dei provvedimenti di cui alla legge 24 novembre 1981, n. 689 (Modifiche al sistema penale) e successive modifiche, nonché all'introito dei relativi importi, con vincolo di destinazione allo svolgimento delle funzioni conferite in materia di turismo.
+2. Gli atti relativi ai procedimenti di applicazione delle sanzioni amministrative pecuniarie di cui agli articoli 27 e 29, già accertate e contestate ai sensi dell'articolo 14 della l. 689/1981 alla data di entrata in vigore della presente disposizione, sono trasmessi alle amministrazioni comunali quali autorità amministrative territorialmente competenti per l'adozione dei provvedimenti di cui all'articolo 18 della citata l. 689/1981.
