@@ -1,0 +1,4 @@
+Art. 5 bis (1)
+(Contributi ai comuni per la realizzazione di progetti pilota per la gestione e lo smaltimento dei rifiuti raccolti in mare)
+1. La Regione sostiene le iniziative dei comuni per la gestione e lo smaltimento dei rifiuti raccolti in mare e per la promozione dell'economia circolare.
+2. Per le finalità di cui al comma 1, la Regione concede un contributo ai comuni per la realizzazione di un progetto pilota mirato alla realizzazione di isole di trasferenza per la raccolta, caratterizzazione, smistamento e smaltimento dei rifiuti raccolti durante le operazioni di pesca in mare, a valere sull'autorizzazione di spesa relativa all'articolo 1, comma 38, della legge regionale 11 agosto 2008, n. 14 (Assestamento del bilancio annuale e pluriennale 2008-2010 della Regione Lazio) e successive modifiche.
