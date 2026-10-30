@@ -1,0 +1,2 @@
+L.R. 20 Dicembre 2001, n. 40
+Modifiche alle leggi regionali 9 settembre 1996, n. 38 <<riordino, degli="" dei="" e="" interventi="" nel="" lazio="" servizi="" programmazione="" socio-assistenziali="" gestione="">> e 6 agosto 1999, n. 14 <<organizzazione a="" la="" per="" e="" regionale="" delle="" del="" realizzazione="" funzioni="" livello="" locale="" amministrativo="" decentramento="">> e successive modifiche disposizioni transitorie in materia di invalidi civili (1)
