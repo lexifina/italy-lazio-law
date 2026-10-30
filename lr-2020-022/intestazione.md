@@ -1,0 +1,10 @@
+SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Definizione)
+Art. 3 (Valorizzazione, promozione e diffusione della Street art)
+Art. 4 (Elenco dei beni e degli spazi disponibili per interventi di Street art)
+Art. 5 (Catalogo delle opere. Premio regionale "Lazio Street Art")
+Art. 6 (Regolamento regionale per la valorizzazione, promozione e diffusione della Street art. Linee guida per i comuni)
+Art. 7 (Abrogazioni. Disposizione transitoria)
+Art. 8 (Disposizioni finanziarie)
+Art. 9 (Entrata in vigore)
