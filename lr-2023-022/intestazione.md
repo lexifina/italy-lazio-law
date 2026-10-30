@@ -1,0 +1,11 @@
+SOMMARIO
+Art. 1 (Finalità)
+Art. 2 (Programmazione dell'offerta formativa degli ITS Academy)
+Art. 3 (Promozione della cultura scientifica e dei percorsi formativi degli ITS Academy)
+Art. 4 (Campagne informative e di orientamento)
+Art. 5 (Reti ITS Academy)
+Art. 6 (Tavolo tecnico)
+Art. 7 (Giornata formativa "Open day Formazione ITS Academy")
+Art. 8 (Clausola di valutazione degli effetti finanziari)
+Art. 9 (Disposizioni finanziarie)
+Art. 10 (Entrata in vigore)
