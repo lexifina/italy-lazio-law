@@ -1,0 +1,11 @@
+SOMMARIO
+Art. 1 (Istituzione della Consulta femminile regionale per le pari opportunità)
+Art. 2 (Composizione della Consulta)
+Art. 3 (Costituzione e funzionamento della Consulta)
+Art. 4 (Compiti della Consulta)
+Art. 5 (Sede e organizzazione della Consulta)
+Art. 6 (Deliberazione dell'Ufficio di presidenza del Consiglio regionale)
+Art. 7 (Disposizioni transitorie)
+Art. 8 (Abrogazioni)
+Art. 9 (Disposizioni finanziarie)
+Art. 10 (Entrata in vigore)
