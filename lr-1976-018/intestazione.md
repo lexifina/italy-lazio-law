@@ -1,0 +1,2 @@
+L.R. 30 Aprile 1976, n. 18
+Anticipazioni per conto delle Comunità montane per trattamento economico al personale dei consigli di valle e delle aziende speciali silvo-pastorali esistenti nella Regione ed operanti nelle province di Frosinone, Rieti e Roma ed istituiti a norma del D.P.R. 10 giugno 1955, n. 987 e che saranno assorbite con il relativo personale dalle costituende Comunità montane ai sensi dell'art. 32 della legge regionale 2 maggio 1973, n. 16 (1) (2)
