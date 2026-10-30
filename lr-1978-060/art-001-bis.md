@@ -1,0 +1,2 @@
+Art. 1-bis
+La Regione ha facoltà di concedere agli enti di cui al secondo comma dell'articolo precedente contributi in conto capitale per la realizzazione di opere di urbanizzazione primaria, all'interno o al servizio di aree destinate ad insediamenti artigianali e/o industriali, in conformità alla previsioni dei vigenti strumenti urbanistici, sempre che per tali opere si utilizzino aree di proprietà di detti enti (3).
