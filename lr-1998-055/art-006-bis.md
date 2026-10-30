@@ -1,0 +1,4 @@
+Art. 6 bis (5b)
+(Monitoraggio programmi di autorecupero)
+1. La Regione, con la collaborazione degli enti e degli istituti di cui all'articolo 1, comma 1 provvede al monitoraggio dei programmi di autorecupero di cui alla presente legge e pubblica sul proprio sito internet l'elenco degli immobili e delle aree, suddivisi per comune, per i quali sono stati avviati interventi di autorecupero. Le amministrazioni che sottoscrivono le convenzioni forniscono all'Agenzia del territorio i dati e le informazioni necessarie allo svolgimento dell'attività di monitoraggio degli interventi.
+2. All'onere derivante dall'attuazione del comma 1 si provvede nei limiti delle risorse umane, finanziarie e strumentali disponibili a legislazione vigente e, comunque, senza nuovi o maggiori oneri a carico della finanza pubblica.
