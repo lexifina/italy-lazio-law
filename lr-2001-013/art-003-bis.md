@@ -1,0 +1,4 @@
+Art. 3 bis (4)
+(Concessione in comodato d'uso gratuito)
+1. Per la realizzazione delle finalità di cui alla presente legge, la Regione, le Aziende pubbliche di servizi alla persona (ASP) e le aziende sanitarie del Lazio possono concedere in comodato d'uso gratuito beni mobili e immobili ai soggetti individuati nell'ambito dei protocolli d'intesa di cui all'articolo 2.
+2. Gli enti locali, nell'ambito della propria autonomia organizzativa, possono stipulare protocolli di intesa anche al fine di concedere in comodato d'uso gratuito beni mobili e immobili di loro proprietà, in armonia con quanto previsto dall'articolo 3 della legge 1° agosto 2003, n. 206 (Disposizioni per il riconoscimento della funzione sociale svolta dagli oratori e dagli enti che svolgono attività similari e per e per la valorizzazione del loro ruolo).
