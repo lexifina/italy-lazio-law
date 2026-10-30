@@ -1,0 +1,2 @@
+ARTICOLO UNICO
+Qualora il comune abbia gia' adottato la variante prevista dall' articolo 4 della legge regionale 2 maggio 1980, n. 28, recante: << Norme concernenti l' abusivismo edilizio ed il recupero dei nuclei edilizi sorti spontaneamente >> e la variante sia stata trasmessa alla Regione per l' approvazione, i comuni stessi possono autorizzare, per i fabbricati esistenti e conformi alle previsioni della variante, opere di manutenzione ordinaria secondo quanto stabilisce l' articolo 31, lettera a), della legge 5 agosto 1978, n. 457.
