@@ -1,0 +1,5 @@
+Art. 63 bis (43)
+(Primo PTPG e prima verifica di compatibilità del PUCG)
+1. In sede di prima applicazione della presente legge ed in deroga a quanto previsto dall'articolo 9, comma 3, lettera c), la provincia adotta il PTPG, ai sensi dell'articolo 21, comma 4, entro il 31 dicembre 2003. Decorso inutilmente tale termine, la Regione attiva i poteri sostitutivi ai sensi dell'articolo 74.
+2. La provincia effettua la verifica di compatibilità del PUCG, di cui all'articolo 33, comma 3, a decorrere dalla data di pubblicazione del PTPG ai sensi dell'articolo 21, comma 12.
+3. La provincia che ha eventualmente adottato, entro la data di entrata in vigore della presente legge, il piano territoriale di coordinamento ai sensi dell'articolo 55 della legge regionale 7 giugno 1999, n. 6, in corso di verifica di compatibilità da parte della Regione, adegua tali piani, entro il termine di cui al comma 1, ai contenuti del PTPG previsti dall'articolo 20, con le procedure disciplinate dall'articolo 21. In tale caso, ai fini della verifica di compatibilità del PUCG, si applica la disposizione di cui al comma 2.

@@ -1,0 +1,10 @@
+Art. 50 bis (18)
+(Norme di semplificazione concernenti le varianti urbanistiche per la realizzazione di opere pubbliche o di pubblica utilità)
+1. Nei casi previsti dall'articolo 19, commi 2 e 3, del decreto del Presidente della Repubblica 8 giugno 2001, n. 327 (Testo unico delle disposizioni legislative e regolamentari in materia di espropriazione per pubblica utilità) e successive modifiche, concernenti l'adozione di progetti di opere pubbliche in variante allo strumento urbanistico generale, la verifica di compatibilità della variante è effettuata, in deroga agli articoli 33 e 34 della presente legge, dalla provincia, che si pronuncia entro il termine di quarantacinque giorni dalla ricezione della delibera comunale di cui all'articolo 19, comma 4. Decorso inutilmente il suddetto termine, la verifica si intende positiva. Resta comunque fermo quanto previsto dall'articolo 10, comma 1, del d.p.r. 327/2001 e successive modifiche.
+2. La procedura di cui al comma 1 si applica anche nel caso di reiterazione del vincolo espropriativo decaduto ai sensi dell'articolo 9, comma 4, del d.p.r. 327/2001 e successive modifiche.
+3. La delibera del consiglio comunale di cui all'articolo 9, comma 5, del d.p.r. 327/2001 e successive modifiche, con la quale, nel corso dei cinque anni di durata del vincolo espropriativo, si dispone o si autorizza la realizzazione sul bene vincolato di opere pubbliche o di pubblica utilità diverse da quelle originariamente previste dal PUCG, è sottoposta alla mera comunicazione alla provincia.
+4. Nel periodo di applicazione delle disposizioni transitorie previste dall'articolo 66, le norme del presente articolo si applicano alle procedure di approvazione della variante urbanistica di competenza della Regione.
+TITOLO IV
+TUTELA E DISCIPLINA DELL'USO AGRO-FORESTALE DEL SUOLO
+CAPO I
+INDIRIZZI PER LA REDAZIONE DEGLI STRUMENTI URBANISTICI
