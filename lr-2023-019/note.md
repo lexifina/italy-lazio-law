@@ -1,0 +1,2 @@
+Note:
+(1) Vedi il decreto del Presidente della Regione 28/03/2024, n.T00053 (Nomina del Commissario straordinario per le operazioni di liquidazione dell'Ente di Governo d'Ambito territoriale ottimale (EGATO) della Provincia di Frosinone sensi dell'art. 2 della legge regionale 21 novembre 2023, n. 19, recante "Abrogazione della legge regionale 25 luglio 2022, n. 14 (Disciplina degli enti di governo d'ambito territoriale ottimale per la gestione dei rifiuti urbani)
