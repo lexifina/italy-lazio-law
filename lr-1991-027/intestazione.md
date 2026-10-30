@@ -1,0 +1,2 @@
+L.R. 08 Luglio 1991, n. 27
+Modifiche all'articolo 42 della legge regionale 5 maggio 1990, n. 41, concernente: "Approvazione della disciplina contenuta nell'accordo per il triennio 1988-90 riguardante il personale dipendente delle regioni a statuto ordinario, degli enti pubblici non economici da esse dipendenti, dagli istituti autonomi per le case popolari, dai consorzi regionali degli istituti stessi nonch‚ dai consorzi e dai nuclei per le aree di sviluppo industriale". (1)
