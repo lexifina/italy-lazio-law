@@ -1,0 +1,21 @@
+L.R. 07 Novembre 2016, n. 14
+Disposizioni per valorizzare e sostenere il consumo dei prodotti agricoli e alimentari di qualità provenienti da filiera corta (1)
+SOMMARIO
+Art. 1 (Finalità e definizione)
+Art. 2 (Utilizzo dei prodotti agricoli provenienti da filiera corta nelle strutture di ristorazione collettiva)
+Art. 3 (Divieto di somministrazione e vendita di prodotti agricoli e alimentari contenenti OGM) [abrogato]
+Art. 4 (Valorizzazione e promozione commerciale dei prodotti provenienti da filiera corta. Logo e circuito regionale)
+Art. 5 (Vendita diretta dei prodotti provenienti da filiera corta)
+Art. 6 (Compiti dei comuni)
+Art. 7 (Bando delle risorse genetiche autoctone di interesse agrario)
+Art. 8 (Valorizzazione e promozione di nuovi mercati per i prodotti della pesca e dell'acquacoltura. Bando "pesce a miglio zero")
+Art. 9 (Centri di trasformazione di comunità)
+Art. 10 (Gruppi di acquisto solidale e popolare - GASP)
+Art. 11 (Commissione tecnico-scientifica "prodotti a filiera corta")
+Art. 12 (Regolamento regionale)
+Art. 13 (Controlli)
+Art. 14 (Contadino per un giorno)
+Art. 15 (Piattaforma regionale della grande distribuzione organizzata per la vendita dei prodotti provenienti dalla filiera corta)
+Art. 16 (Rispetto della normativa dell'Unione europea)
+Art. 17 (Modifica alla legge regionale 10 gennaio 1995, n. 2 "Istituzione dell'Agenzia regionale per lo sviluppo e l'innovazione dell'agricoltura del Lazio (ARSIAL) e successive modifiche)
+Art. 18 (Disposizioni finanziarie)
