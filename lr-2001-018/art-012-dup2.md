@@ -1,0 +1,12 @@
+Art. 12
+(Procedure per la classificazione in zone
+acustiche dei territori comunali)
+1. Il comune adotta la proposta preliminare di classificazione in zone acustiche del proprio territorio, redatta da tecnici competenti in possesso dei requisiti di cui all'articolo 20, sulla base dei criteri generali e delle ulteriori indicazioni contenuti negli articoli 7, 8, 9, 10 e 11 e nel rispetto delle procedure di cui ai commi 2, 3, 4, 5, 6, e 7.
+2. La proposta preliminare è trasmessa alla Regione, alla provincia ed ai comuni confinanti ed è depositata, per sessanta giorni, presso la segreteria del comune. Del deposito è data notizia nell'albo pretorio del comune.
+3. Entro trenta giorni dalla scadenza del deposito di cui al comma 2, i soggetti interessati possono presentare osservazioni al comune. Entro i successivi trenta giorni, qualora siano state presentate osservazioni da parte dei comuni confinanti in riferimento al divieto di cui all'articolo 7, comma 5, il comune convoca una conferenza di servizi per la valutazione delle osservazioni presentate, ai sensi dell'articolo 14 della legge 7 agosto 1990, n.241 (Nuove norme in materia di procedimento amministrativo e di diritto di accesso ai documenti amministrativi) e successive modifiche.
+4. Entro trenta giorni dalla conclusione della conferenza di servizi, ovvero, qualora la conferenza di servizi non sia stata convocata, entro trenta giorni dalla scadenza del termine per la presentazione delle osservazioni di cui al comma 3, il comune adotta la classificazione in zone acustiche del proprio territorio sulla base delle determinazioni assunte dalla conferenza di servizi, qualora convocata, e delle osservazioni presentate ai sensi del citato comma 3, che siano state accolte dal comune.
+5. La classificazione in zone acustiche del territorio comunale, di cui è data notizia con le stesse modalità indicate dal comma 2, costituisce allegato tecnico al piano urbanistico comunale generale (PUCG) e sue varianti ed ai piani urbanistici operativi comunali (PUOC).
+6. In sede di verifica del PUCG o di sue varianti e dei PUOC ai sensi degli articoli 33, comma 3 e 42, comma 6 della legge regionale 22 dicembre 1999, n. 38 e successive modifiche, la provincia verifica, altresì, il coordinamento degli strumenti urbanistici stessi con la classificazione in zone acustiche del territorio comunale.
+7. Per le modificazioni della classificazione in zone acustiche del territorio comunale si applicano le procedure di cui ai commi precedenti.
+TITOLO III
+Pianificazione regionale e comunale e delle imprese

@@ -1,0 +1,5 @@
+Art. 23
+(Disposizioni finanziarie)
+1. Per le finalità di cui alla presente legge sono concessi contributi ai comuni secondo le priorità individuate ai sensi dell'articolo 13 della presente legge. A tal fine sono istituiti, per memoria, nello stato di previsione dell'entrata del bilancio regionale il capitolo numero 02119 denominato "Proventi delle sanzioni amministrative previste dall'articolo 10 della l. 447/1995" e nello stato di previsione della spesa del bilancio regionale il capitolo numero 16230 denominato "Versamento al bilancio dello Stato del 70 per cento dei proventi delle sanzioni amministrative di cui all'articolo 10 della l. 447/1995".
+2. Agli oneri derivanti dalle attività di classificazione acustica e monitoraggio nonché dagli interventi di risanamento acustico si fa fronte mediante l'istituzione di apposito capitolo di spesa nell'ambito dell'UPB E34 denominato: "Contributi in conto capitale per la classificazione acustica del territorio, per il monitoraggio e per gli interventi di risanamento", con uno stanziamento, per l'anno 2008, pari a 500 mila euro. (2)
+3. (3)

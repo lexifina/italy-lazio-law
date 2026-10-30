@@ -1,0 +1,5 @@
+Art. 29
+(Disposizioni transitorie per attività rumorose già in esercizio)
+1. I gestori o i responsabili delle discoteche, dei luoghi di intrattenimento danzante, dei circoli privati a ciò abilitati, delle attività di pubblico spettacolo, queste ultime solo se in luogo aperto, delle attività ricreative o sportive che utilizzino strumenti o impianti rumorosi in modo continuativo, in esercizio alla data di entrata in vigore della presente legge, entro sei mesi dalla stessa data, presentano ai comuni territorialmente competenti la documentazione di impatto acustico prevista dall'articolo 18, comma 1, ai fini della verifica del rispetto dei limiti di legge e della tutela del vicinato.
+2. Nei casi in cui le attività indicate nel comma 1 determinino disagi di particolare rilevanza, i comuni possono, anche prima della scadenza del termine di cui al comma 1, previo parere dell'ARPA, richiedere la documentazione di impatto acustico.
+3. Le disposizioni di cui al comma 1 si applicano anche alle attività già autorizzate, ma non ancora in esercizio alla data di entrata in vigore della presente legge.

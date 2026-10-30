@@ -1,0 +1,11 @@
+Art. 7
+(Criteri generali)
+1. I comuni provvedono alla classificazione in zone acustiche del proprio territorio sulla base:
+a) delle destinazioni d'uso previste dagli strumenti urbanistici generali, anche se solo adottati e dell'effettiva e prevalente fruizione del territorio nonché della situazione topografica esistente, in modo che siano limitate le microsuddivisioni del territorio stesso, attraverso la riunificazione di quelle zone che siano acusticamente omogenee;
+b) degli indicatori di valutazione rappresentativi delle attività antropiche, ricavati dai dati ISTAT.
+2. Il territorio comunale è suddiviso in classi acustiche, in ordine decrescente di tutela, secondo quanto stabilito nell'allegato A, sulla base delle indicazioni del decreto previsto dall'articolo 3, comma 1, lettera a) della l. 447/1995.
+3. I comuni, nel provvedere alla classificazione di cui al comma 1, indicano le aree da destinarsi a spettacolo a carattere temporaneo, ovvero mobile, ovvero all'aperto, tenendo conto dei rapporti con l'abitato e con l'ambiente.
+4. Qualora il territorio comunale presenti aree di particolare interesse paesaggistico-ambientale e turistico, al fine di garantire condizioni di quiete, il comune può fissare per tali aree valori di qualità inferiori di almeno 3 dB rispetto a quelli assegnati alla zona nella quale ricadono, in conformità ai criteri di cui all'articolo 2, comma 1, lettera g), fatto salvo quanto previsto dall'articolo 4, comma 1, lettera f), della l. 447/1995, in riferimento ai servizi pubblici essenziali.
+5. Ai sensi dell'articolo 4, comma 1, lettera a), della l. 447/1995, è vietato l'accostamento di zone acustiche caratterizzate da una differenza dei valori limite previsti dalla normativa vigente superiori a 5 dB, anche allorquando le zone appartengano a comuni confinanti.
+6. Per le aree a forte fluttuazione turistica stagionale è possibile l'adozione di due zonizzazioni acustiche di cui una corrispondente ai periodi di massima affluenza turistica e l'altra relativa ai periodi rimanenti.
+7. La classificazione in zone acustiche deve essere riportata su cartografia in scala non inferiore a 1:10.000 e per le aree urbanizzate in scala da 1:5.000 a 1:2.000 nonché seguendo le indicazioni grafico- cromatiche di cui all'allegato B.
