@@ -1,0 +1,5 @@
+Art. 9 bis (17)
+(Programmi per la semiautonomia)
+1. I programmi per la semiautonomia offrono un sostegno a livello abitativo e servizi disupporto e accompagnamento all'autonomia personale, sociale e lavorativa a persone disabilie a persone con patologie psichiatriche o con problematiche sociali, con capacità di autogestione e autonomia tali da non richiedere la presenza di operatori in maniera continuativa tramite l'enunciazione di precise fasce orarie definite in base al progetto specifico.
+2. I programmi per la semiautonomia sono offerti in appartamenti di civile abitazione, organizzati come nuclei abitativi familiari che accolgono fino ad un massimo di sei ospiti con bisogni omogenei o compatibili, coinvolti in maniera continua e diretta nella conduzione e nella gestione della vita quotidiana.
+3. Fermi restando i requisiti previsti dall'articolo 11, commi 1 bis e 1 ter, i requisiti strutturalie organizzativi nonché le modalità per l'attuazione dei programmi di cui al presente articolo sono definiti con deliberazione della Giunta regionale.(17b)
