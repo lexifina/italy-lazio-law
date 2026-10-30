@@ -1,0 +1,2 @@
+L.R. 21 Dicembre 1981, n. 34
+Costituzione di una commissione consiliare d'inchiesta sulla gestione dei fondi di cui alla Lr 29-12-1978 N.80, recante: "provvidenze per il potenziamento ed il miglioramento degli esercizi alberghieri e degli impianti ed attrezzature complementari " ed alla lr 29-12-1978 n.82 recante: " norme di attuazione nella Regione Lazio della legge nazionale 2-5-1976 n.183: Incremento e miglioramento degli esercizi ricettivi nonche' degli impianti ed attrezzature complementari" (1) (2)
