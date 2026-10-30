@@ -1,0 +1,15 @@
+Art. 2
+(Prestazioni e compiti dell' affidatario dell' incarico)
+L' affidatario, per l' espletamento del suo incarico, acquisira' la documentazione ed i dati di base disponibili, provvedendo poi ad integrare le informazioni cosi' acquisite con indagini e rilievi che si impegna ad eseguire nel contesto del presente incarico, secondo quanto descritto nell' allegato di cui al precedente articolo 1.
+Per l' esecuzione di queste indagini e rilievi (studi sulla domanda di mobilita', sulla scelta modale e sulle funzioni di costo dei singoli archi delle reti di trasporto disponibili nei bacini di traffico interessati), l' affidatario potra' avvalersi della collaborazione di esperti e ditte specializzate altamente qualificati nei rispettivi settori di competenza, ma cio' senza oneri aggiuntivi per la Regione.
+Nel caso in cui l' affidatario dell' incarico intenda avvalersi di persone giuridiche ai fini dello svolgimento, in tutto od in parte, del lavoro connesso con la redazione del piano, spetta alla Giunta regionale di esprimere il preliminare gradimento.
+Per i soggetti fisici che direttamente od indirettamente saranno utilizzati per i compiti inerenti alla formazione del piano, il gradimento e' espresso dal Presidente della Giunta regionale o dall' assessore regionale ai trasporti dallo stesso Presidente delegato.
+In conformita' agli indirizzi espressi nella legge regionale di cui il presente atto costituisce allegato l' affidatario svolgera' il suo incarico in stretta collaborazione con la segreteria tecnica per la formazione del piano, istituita presso l' assessorato ai trasporti della Regione. Il committente, i suoi organismi ed i suoi uffici saranno costantemente tenuti informati dell' andamento e dello sviluppo delle indagini ed elaborazioni affidate.
+L' affidatario da' atto che le funzioni di collegamento e di coordinamento tra Amministrazione regionale e lo stesso affidatario saranno svolte dalla predetta segreteria tecnica cui sono attribuiti l' esame e la valutazione preventivi dei rapporti intermedi e degli elaborati finali concernenti la redazione del piano fornito dall' affidatario.
+Nell' ambito del contratto di cui alla presente convenzione, l' affidatario porra' a disposizione dell' Amministrazione regionale, per l' attivita' di supporto da svolgersi presso la predetta segreteria tecnica, durante il periodo di elaborazione del piano, le seguenti unita' di personale, con le seguenti massime disponibilita':
+a) 2 dattilografe: 24 mesi x 2 = 48 mesi totali;
+b) 1 stenodattilografa: 24 mesi x 1 = 24 mesi totali;
+c) 1 operatore di fotocopie: 24 mesi x 1 = 24 mesi totali;
+d) 2 disegnatori: 24 mesi x 2 = 48 mesi totali;
+e) 2 operatori di computer: 24 mesi x 2 = 48 mesi totali.
+Detto personale prestera' la propria collaborazione presso gli uffici dell' assessorato ai trasporti della Regione, secondo l' orario di lavoro degli uffici stessi e sara' diretto dal capo della segreteria tecnica e dal responsabile dell' affidatario del progetto nell' ambito di un programma di lavoro concordato tra le parti che specifichera' le attivita' ed i tempi di esecuzione.

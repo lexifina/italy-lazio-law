@@ -1,0 +1,31 @@
+Art. 5
+(Tempi e modalita' di esecuzione dell' incarico)
+L' affidatario svolgera' complessivamente il suo incarico in un periodo massimo di ventuno mesi, decorrenti dalla data in cui la presente convenzione sara' divenuta esecutiva ed operante e calcolati al netto delle eventuali interruzioni di termini (di seguito piu' specificamente precisate) conseguenti a richieste di chiarimenti e/ o di modificazioni dei rapporti intermedi e degli elaborati finali del piano, formulate dall' Amministrazione regionale nel corso delle operazioni di controllo e di verifica dei rapporti e degli elaborati predetti.
+Secondo il progetto di lavoro di cui all' allegato l' incarico sara' realizzato in 4 fasi temporali, cosi' descritte:
+1a fase (4 mesi): Impostazione generale L. . . . milioni (di cui L. . . . . milioni relativi alle competenze delle unita' di personale di cui all' articolo 2)
+Raccolta ragionata materiali ed indagini gia' effettuate
+Quadro normativo e tecnico
+Consultazioni e rilevazioni dirette presso operatori, aziende, enti locali Analisi di gestione delle aziende di trasporto
+Elaborazione della metodologia operativa
+2a fase (5 mesi): Analisi condizioni strutturali L.... milioni
+Prima definizione del sistema informativo (banca dati) (di cui L... milioni relativi alle competenze delle unita' di personale di cui all' articolo 2)
+Consultazioni e rilevazioni dirette presso: enti locali operatori pubblici e privati del trasporto utenti economici, aziende utenti individuali ( ca 2.000)
+Prima definizione di modelli previsivi Implementazione ed aggiornamenti dati tecnici e matrici origine - destinazione
+3a fase (4 mesi): Quadro delle opzioni L.... milioni Realizzazione dei modelli di simulazione (di cui L.... milioni relativi alle competenze delle unita' di personale di cui all' articolo 2)
+Realizzazione dei modelli di simulazione Analisi del rapporto costo - benefici
+Definizione grafi modali e intermodali Definizione criteri per la valutazione di impatto ambientale
+4a fase (3 mesi): Redazione del piano regionale L.... milioni
+Definizione quadro ipotesi operativa (di cui L... milioni relativi alle competenze delle unita' di personale di cuiall' articolo 2)
+Caratteristiche tecnico - gestionali degli interventi previsti
+Individuazione priorita' modali
+Al termine della prima, della seconda e della terza fase di lavoro, l' affidatario dell' incarico consegnera' al committente, dietro rilascio di ricevuta, un rapporto intermedio conclusivo della singola fase che sara' esaminato e valutato dalla segreteria tecnica ed approvato dall' Amministrazione regionale entro il tempo, rispettivamente di trenta giorni e quarantacinque giorni dalla data di consegna da parte dell' affidatario medesimo al fine di consentire il rispetto dei tempi complessivi.
+L' Amministrazione regionale ha, peraltro, facolta' di chiedere all' affidatario, chiarimenti e/ o integrazioni in ordine ai rapporti trasmessi, purche' questi attengano alle indicazioni contenute nel << Progetto di lavoro >> di cui al precedente articolo 1 a cui lo stesso affidatario non avesse dato sviluppo.
+Alla richiesta dell' Amministrazione regionale l' affidatario dara' seguito provvedendo a fornire detti chiarimenti e/ o procedere a dette integrazioni, senza che cio' comporti ulteriori oneri, anche per revisione dei prezzi, a carico della Regione.
+In tali casi, verra' stabilito di comune accordo il termine per la trasmissione dei chiarimenti e/ o per la consegna degli elaborati intermedi modificati ed il periodo di tempo intercorrente tra la richiesta di chiarimenti e/ o di modificazione e l' approvazione del lavoro non verra' computato ai fini contrattuali, fatta eccezione, al riguardo, del compenso dovuto dall' Amministrazione regionale per le unita' di personale poste a disposizione dall' affidatario per le attivita' della segreteria tecnica del piano.
+All' inizio del lavoro l' affidatario comunichera' al committente i nominativi dei tecnici incaricati di dirigere operativamente il progetto.
+A conclusione della quarta fase e comunque entro e non oltre ventuno mesi decorrenti dalla data in cui la presente convenzione sara' divenuta esecutiva ed operante (cioe' dalla data di comunicazione, da parte dell' Amministrazione regionale, dell' avvenuta approvazione della presente convenzione da parte della Commissione di controllo), e calcolati al netto delle eventuali interruzioni dei termini di approvazione dei rapporti intermedi innanzi precisati, l' affidatario fornira' al committente gli elaborati finali dello schema del piano.
+Gli elaborati finali dello schema del piano saranno esaminati e valutati dalla segreteria tecnica ed adottati dalla Giunta regionale entro il tempo, rispettivamente, di quarantacinque giorni e di novanta giorni dalla data di consegna da parte dell' affidatario.
+L' Amministrazione regionale ha, peraltro, facolta' di chiedere all' affidatario, chiarimenti e/ o integrazioni in ordine agli elaborati trasmessi purche' questi attengano alle indicazioni contenute nel << Progetto di lavoro >> di cui al precedente articolo 1 A cui l' affidatario medesimo non avesse dato sviluppo.
+Alla richiesta dell' Amministrazione regionale l' affidatario dara' seguito provvedendo a fornire detti chiarimenti e/ o a procedere a dette modificazioni senza che cio' comporti ulteriori oneri, anche per revisione dei prezzi, a carico della Regione.
+In tali casi, verra' stabilito di comune accordo il termine per la trasmissione dei chiarimenti e/ o per la consegna degli elaborati finali modificati ed il periodo di tempo intercorrente tra la richiesta di chiarimenti e/ o di modificazioni e l' approvazione del lavoro non verra' computato ai fini contrattuali, fatta eccezione, al riguardo, del compenso dovuto dall' Amministrazione regionale per le unita' di personale poste a disposizione dell' affidatario per le attivita' della segreteria tecnica del piano.
+Qualora la consegna, da parte dell' affidatario, degli elaborati finali venga ritardata, per responsabilita' dello stesso affidatario, oltre i termini previsti dal presente articolo (ventuno mesi) verra' applicata, per ogni sette giorni compiuti di ritardo, una penale di L. 250.000 (duecentocinquantamilalire) da detrarre sull' ultimo pagamento da effettuarsi all' affidatario.
