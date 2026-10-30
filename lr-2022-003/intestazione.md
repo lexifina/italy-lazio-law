@@ -1,0 +1,12 @@
+SOMMARIO
+Art. 1 (Finalità)
+Art. 2 (Obiettivi e interventi)
+Art. 3 (Soggetti beneficiari)
+Art. 4 (Strumenti partecipativi e collaborativi)
+Art. 5 (Piano triennale degli interventi)
+Art. 6 (Programma annuale degli interventi)
+Art. 7 (Disposizione di prima attuazione)
+Art. 8 (Clausola valutativa. Clausola di valutazione degli effetti finanziari)
+Art. 9 (Modifica all'articolo 9 della legge regionale 19 marzo 2014, n. 4 "Riordino delle disposizioni per contrastare la violenza contro le donne in quanto basata sul genere e per la promozione di una cultura del rispetto dei diritti umani fondamentali e delle differenze tra uomo e donna" e successive modifiche)
+Art. 10 (Disposizioni finanziarie)
+Art. 11 (Entrata in vigore)
