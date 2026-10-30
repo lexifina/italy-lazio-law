@@ -1,0 +1,73 @@
+SOMMARIO
+CAPO I DISPOSIZIONI GENERALI
+Art. 1 (Finalità e oggetto)
+Art. 2 (Servizi educativi)
+Art. 3 (Sistema integrato di educazione e istruzione per l'infanzia)
+Art. 4 (Servizi educativi nei luoghi di lavoro)
+Art. 5 (Forme di titolarità e gestione dei servizi educativi)
+Art. 6 (Utenti dei servizi educativi a offerta pubblica)
+Art. 7 (Criteri di accesso ai servizi educativi a offerta pubblica)
+Art. 8 (Contributi delle famiglie ai costi di gestione)
+Art. 9 (Inclusione delle bambine e dei bambini con bisogni educativi speciali)
+CAPO II ISTITUZIONI, SOGGETTI E FUNZIONI
+Art. 10 (Comuni)
+Art. 11 (Aziende sanitarie locali)
+Art. 12 (Regione)
+Art. 13 (Soggetti gestori dei servizi educativi)
+Art. 14 (Coordinatore pedagogico)
+Art. 15 (Gruppo educativo)
+Art. 16 (Gestione sociale e partecipazione delle famiglie)
+Art. 17 (Poli per l'infanzia)
+Art. 18 (Coordinamenti pedagogici territoriali)
+CAPO III REQUISITI DEI SERVIZI EDUCATIVI
+Art. 19 (Ubicazione dei servizi educativi)
+Art. 20 (Requisiti degli spazi, degli arredi e dei giochi)
+Art. 21 (Refezione e tabella dietetica)
+Art. 22 (Compiti del personale)
+Art. 23 (Titoli di studio)
+Art. 24 (Formazione continua in servizio)
+Art. 25 (Requisiti di onorabilità)
+Art. 26 (Sistema di prevenzione e tutela delle bambine e dei bambini)
+Art. 27 (Sistema di comunicazione delle assenze delle bambine e dei bambini)
+Art. 28 (Progetto educativo)
+Art. 29 (Carta dei servizi)
+CAPO IV NIDO
+Art. 30 (Nido)
+Art. 31 (Funzionamento e prestazioni del nido)
+Art. 32 (Ricettività)
+Art. 33 (Spazi interni)
+Art. 34 (Spazi esterni)
+Art. 35 (Rapporto numerico tra personale e bambine e bambini)
+Art. 36 (Micronido)
+Art. 37 (Sezione primavera)
+CAPO V EDUCAZIONE SPERIMENTALE
+Art. 38 (Educazione sperimentale all'aperto)
+Art. 38bis (Educazione sperimentale interculturale)
+CAPO VI SERVIZI EDUCATIVI INTEGRATIVI
+Art. 39 (Spazio gioco)
+Art. 40 (Nido domestico)
+Art. 41 (Gestione del nido domestico)
+Art. 42 (Centro per bambine e bambini e famiglie)
+CAPO VII STRUMENTI OPERATIVI PER LA QUALITÀ
+Art. 43 (Autorizzazioni)
+Art. 44 (Decadenza delle autorizzazioni)
+Art. 45 (Accreditamento e convenzionamento)
+Art. 46 (Commissioni distrettuali per i servizi educativi)
+Art. 47 (Consulta regionale per i servizi educativi)
+Art. 48 (Sistema informativo)
+CAPO VIII PROGRAMMAZIONE, FINANZIAMENTI E DISPOSIZIONI ATTUATIVE
+Art. 49 (Programma regionale dei servizi educativi per la prima infanzia)
+Art. 50 (Finanziamenti)
+Art. 51 (Contributi alle famiglie)
+Art. 52 (Regolamento di attuazione e integrazione)
+Art. 53 (Clausola valutativa)
+CAPO IX VIGILANZA E SANZIONI
+Art. 54 (Vigilanza)
+Art. 55 (Sanzioni)
+CAPO X DISPOSIZIONI TRANSITORIE E FINALI. ABROGAZIONI E DISPOSIZIONI FINANZIARIE
+Art. 56 (Disposizioni transitorie e finali)
+Art. 57 (Abrogazioni)
+Art. 58 (Disposizioni finanziarie)
+Art. 59 (Entrata in vigore)
+CAPO I
+DISPOSIZIONI GENERALI
