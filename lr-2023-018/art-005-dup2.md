@@ -1,0 +1,5 @@
+Art. 5
+(Disposizioni relative all'autorizzazione per l'indebitamento di Astral S.p.A.)
+1. Al fine di procedere all'acquisto di autobus e alla realizzazione delle relative infrastrutture di alimentazione nell'ambito del Piano strategico nazionale della mobilità sostenibile e tenuto conto di quanto stabilito dall'articolo 7, commi 31 e 32, della legge regionale 27 dicembre 2019, n. 28, relativi a disposizioni in materia di trasporto pubblico locale e successive modifiche, Astral S.p.A. è autorizzata a contrarre un prestito chirografario con Cassa depositi e prestiti, per un importo massimo di euro 80 milioni.
+2. Entro sessanta giorni dalla data di entrata in vigore della presente legge, la Giunta regionale delibera(1) gli indirizzi propedeutici all'operazione di indebitamento di cui al comma 1, individuando anche le risorse, a legislazione vigente, destinate ad Astral S.p.A. per ciascuna unità di rete.
+3. Dall'applicazione del presente articolo non derivano oneri per il bilancio regionale.
