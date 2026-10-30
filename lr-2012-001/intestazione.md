@@ -1,0 +1,16 @@
+L.R. 28 Marzo 2012, n. 1
+Disposizioni per il sostegno dei sistemi di qualità e tracciabilità dei prodotti agricoli e agroalimentari. Modifica alla legge regionale 10 gennaio 1995, n. 2 (Istituzione dell'Agenzia regionale per lo sviluppo e l'innovazione dell'agricoltura del Lazio - ARSIAL) e successive modifiche (1) (2)
+SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Marchio regionale collettivo di qualità)
+Art. 3 (Regolamento regionale)
+Art. 4 (Disciplinari di produzione)
+Art. 5 (Ripartizione delle risorse)
+Art. 6 (Contributi per la costituzione e l'avviamento dei comitati promotori e delle associazioni)
+Art. 7 (Contributi per lo sviluppo dei prodotti agricoli e agroalimentari di qualità)
+Art. 8 (Interventi di educazione alimentare e attività di promozione)
+Art. 9 (Controlli sull'uso del marchio regionale e vigilanza sui soggetti abilitati all'attività di controllo. Banca dati)
+Art. 10 (Controlli, revoca dei contributi e del marchio regionale)
+Art. 11 (Modifica alla l.r. 2/1995 e successive modifiche)
+Art. 12 (Rispetto della normativa dell'Unione europea)
+Art. 13 (Disposizione finanziaria)
