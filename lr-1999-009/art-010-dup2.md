@@ -1,0 +1,7 @@
+Art. 10
+(Provincia di Latina)
+1. E' inserito il comune:
+a) zona XVII: Santi Cosma e Damiano.
+ALLEGATO D (38)
+ELENCO COMUNI MONTANI ESCLUSI DALLE COMUNITA' MONTANE
+AI SENSI DELL'ARTICOLO 28 DELLA L. 142/1990
