@@ -1,0 +1,10 @@
+Art. 16-bis
+Fuori dei casi previsti dai precedenti articoli, la territorio regionale, quote di rimborso sulle spese sostenute per
+ricoveri in istituti di cura ad alta specializzazione situati
+fuori del territorio nazionale, qualora si tratti di far fronte a particolari esigenze terapeutiche che non potrebbero essere adeguatamente o tempestivamente soddisfatte in istituti di ricovero e cura situati nel territorio nazionale.
+Il rimborso viene effettuato dal funzionario delegato dietro richiesta dell'interessato, corredata di un documento atto a comprovare il titolo dell'assistenza di un certificato di residenza nonchè di dionea documentazione sanitaria, previo parere favorevole di un collegio medico, composto di un medico della Regione e di due primari ospedalieri o docenti universitari, esperti in relazione alla prestazione sanitaria oggetto dell'esame, scelti dal Presidente della Giunta regionale tra i nominativi indicati in un apposito elenco formato annualmente dalla Giunta regionale (9).
+Il collegio medico può eseguire direttamente o far eseguire gli accertamenti diagnostici sul paziente che ritenga necessari ed opportuni valendosi degli enti ospedalieri della Regione.
+Ai membri del collegio medico di cui sopra, estranei all'Amministrazione regionale, spetta un gettone di presenza di lire 15.000 a seduta nonchè il trattamento economico di missione se ed in quanto dovuto, nella misura stabilita dalla legge 18 dicembre 1973, n. 836 per i docenti universitari e dagli accordi nazionali stipulati a norma dell'art. 40, ultimo comma, della legge 12 febbraio 1968, n. 132 per i primari ospedalieri.
+L'ammontare del rimborso di cui al presente articolo è com
+misurato alle spese sostenute e documentate ed alle condizioni economiche dell'assistito. In ogni caso, la misura del rimborso non può essere inferiore alla quota di rimborso prevista dal penultimo comma dell'art. 11, nè superiore ad una percentuale massima della spesa sostenuta e documentata, stabilita annualmente dalla Giunta regionale (10).
+Gli oneri relativi all'applicazione del presente articolo sono a carico del fondo regionale per l'assistenza ospedaliera (11).
