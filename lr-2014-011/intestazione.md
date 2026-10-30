@@ -1,0 +1,2 @@
+L.R. 24 Novembre 2014, n. 11
+Sicurezza sanitaria dal cielo in tutto il Lazio. Disposizioni per garantire l'effettiva applicazione del Regolamento (UE) n. 965/2012 della commissione sui requisiti tecnici e le procedure amministrative per quanto riguarda le operazioni di volo ai sensi del regolamento (CE) n. 216/2008 del Parlamento europeo e del Consiglio. Modifiche alla legge regionale 3 agosto 2004, n. 9 (Istituzione dell'azienda regionale per l'emergenza sanitaria ARES 118) e successive modifiche
