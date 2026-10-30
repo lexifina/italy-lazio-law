@@ -1,0 +1,2 @@
+Articolo unico.
+E' convalidato, ai sensi dell'art. 9 della legge regionale 30 aprile 1976, n. 17, il decreto del Presidente della Giunta regionale n. 1304 del 14 settembre 1976 (2) concernente il prelevamento della somma di L. 50 milioni dal cap. n. 17.27.52 "Fondo di riserva per le spese impreviste" dello stato di previsione della spesa per l'anno finanziario 1976 per la corrispondente iscrizione della somma stessa nel cap. n. 11.04.05 del medesimo stato di previsione.
