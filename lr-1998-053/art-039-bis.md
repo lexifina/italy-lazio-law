@@ -1,0 +1,3 @@
+Art. 39 bis (32)
+(Parere per l'impiego di materiali provenienti da fondali marini)
+1. In attesa dell'istituzione della commissione consultiva locale per la pesca e l'acquacoltura di cui all'articolo 10 del decreto legislativo 26 maggio 2004, n. 154 (Modernizzazione del settore pesca e dell'acquacoltura, a norma dell'articolo 1, comma 2, della legge 7 marzo 2003, n. 38), il parere previsto dall'articolo 21 della l. 179/2002 è reso dal comitato tecnico scientifico di cui alla legge regionale 18 novembre 1991, n. 74 (Disposizioni in materia di tutela ambientale. Modificazioni ed integrazioni alla legge regionale 11 aprile 1985, n. 36) e successive modifiche.
