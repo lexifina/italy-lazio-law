@@ -1,0 +1,3 @@
+Art. 37
+Utilizzazione dei fondi comunitari FSE 2007-2013.
+1. Le risorse comunitarie relative alla programmazione del Fondo sociale europeo (FSE) 2007-2013 definita dal programma operativo adottato dalla Giunta regionale, su proposta dell'assessore regionale competente in materia di scuola, diritto allo studio e formazione professionale di concerto con gli assessori competenti per assi di intervento e misure e sentite le parti sociali, ed approvato dal Consiglio regionale, sono utilizzate, nell'ambito delle priorità tematiche - risorse umane, occupabilità e coesione sociale - previste dall'Unione europea, privilegiando la concentrazione delle risorse e l'integrazione delle politiche per l'attuazione di interventi di grande impatto strategico per lo sviluppo regionale.

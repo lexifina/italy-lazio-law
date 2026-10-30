@@ -1,0 +1,3 @@
+Art. 2
+Rifinanziamento di leggi regionali
+1. Relativamente all'anno finanziario 2007 è autorizzato il rifinanziamento delle leggi regionali di cui all'allegato quadro "A".

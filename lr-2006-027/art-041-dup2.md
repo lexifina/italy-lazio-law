@@ -1,0 +1,18 @@
+Art. 41
+Misure a sostegno dei giovani
+1. La Regione, al fine di promuovere una migliore qualità della vita delle giovani generazioni, garantendo pari diritti e opportunità nell'accesso all'istruzione, al lavoro e alla mobilità, nonché alla fruizione della cultura, dello sport e dello spettacolo, con particolare riguardo al territorio regionale, stabilisce:
+a) l'istituzione in ciascun ambito provinciale, presso istituti scolastici anche dismessi o altri immobili di proprietà pubblica già destinati ad attività socio-educative-culturali, di appositi centri di iniziativa giovanile e studentesca che, al fine di prevenire il fenomeno della dispersione scolastica e promuovere una maggiore integrazione fra mondo della scuola, dell'università e del lavoro assicurino:
+1) supporto logistico ed operativo alle consulte studentesche provinciali, alle comunità giovanili di cui all'articolo 82 della legge regionale 7 giugno 1999, n. 6 (Disposizioni finanziarie per la redazione del bilancio di previsione della Regione Lazio per l'esercizio finanziario 1999) e successive modifiche nonché alle consulte o forum provinciali dei giovani e alle associazioni iscritte nel registro regionale;
+2) punti informagiovani sulle opportunità previste a livello locale, regionale e nazionale in materia di percorsi formativi, inserimento lavorativo, autoimprenditorialità e microimpresa;
+3) iniziative di informazione specifica nei luoghi di socialità dei giovani, anche attraverso l'utilizzo delle strutture competenti delle aziende unità sanitarie locali del Lazio, al fine di giungere ad una effettiva riduzione del danno determinato dall'uso di droghe;
+4) attività di tutoraggio e sostegno scolastico, anche autogestite dagli studenti o dalle loro associazioni;
+5) attività di orientamento universitario e iniziative sperimentali mirate all'inserimento lavorativo;
+6) iniziative mirate alla promozione del volontariato;
+7) partecipazione ai programmi comunitari riservati agli studenti;
+8) costituzione di un sistema regionale di anagrafe degli studenti integrato tra i sistemi dell'istruzione e della formazione, a sostegno di una adeguata programmazione dell'offerta formativa sul territorio per promuovere il raggiungimento del successo formativo e per prevenire e combattere la dispersione scolastica;
+b) l'attivazione in via sperimentale di una carta giovani, destinata alle persone da quattordici a venticinque anni residenti o domiciliati nel territorio regionale, che preveda:
+1) l'uso gratuito dei mezzi pubblici regionali nell'area extraurbana nei giorni di venerdì e sabato dalle ore 19.00 e fino alle ore 07.00 del giorno successivo nonché uno sconto pari al 10 per cento sugli abbonamenti mensili e annuali inerenti il servizio di trasporto pubblico regionale (16);
+2) l'accesso a tariffe ridotte nei musei di interesse regionale e locale, nonché alle iniziative e manifestazioni culturali, musicali e sportive promosse o finanziate dalla Regione direttamente o mediante il trasferimento di fondi regionali agli enti locali;
+3) convenzioni con alberghi e ostelli della gioventù per favorire la permanenza nei luoghi ove i giovani intendono recarsi durante il fine settimana;
+4) altre agevolazioni finalizzate a sostenere il processo di crescita, formazione e inserimento lavorativo dei giovani, con particolare riguardo agli scambi internazionali, l'accesso alle opportunità offerte dai programmi comunitari, l'apprendimento di una seconda lingua.
+2. Le risorse necessarie allo svolgimento delle attività di cui al presente articolo sono poste a carico dei capitoli di bilancio di rispettiva competenza.

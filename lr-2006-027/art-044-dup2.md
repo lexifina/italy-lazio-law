@@ -1,0 +1,5 @@
+Art. 44
+Bilancio sociale
+1. La Regione si propone di costruire entro il 2007 uno schema di bilancio sociale, come forma di rendiconto utile, per consentire ai cittadini la verifica della coerenza tra gli obiettivi e le modalità attuate per realizzarli.
+2. Lo schema contiene i criteri di individuazione e di selezione delle iniziative da finanziare e prevede un insieme di rendiconti e di relazioni che illustrino con efficacia la missione, i programmi di sviluppo dell'attività sociale della Regione, nonché gli obiettivi relazionali perseguiti.
+3. Lo schema di bilancio sociale di cui al comma 2 è realizzato dall'assessorato regionale competente in materia di bilancio, programmazione economico-finanziaria e partecipazione con il supporto dell'Agenzia regionale per gli investimenti e lo sviluppo del Lazio - Sviluppo Lazio S.p.a. ed è sottoposto al processo di partecipazione unitamente ai documenti di cui all'articolo 3-bis della legge regionale 20 novembre 2001, n. 25 (Norme in materia di programmazione, bilancio e contabilità della Regione) e successive modifiche.

@@ -1,0 +1,4 @@
+Art. 72
+Interventi per la messa in sicurezza delle zone dei Comuni di Guidonia Montecelio e di Tivoli colpiti da fenomeni di subsidenza.
+1. Al fine di consentire la realizzazione degli interventi finalizzati alla messa in sicurezza delle zone dei Comuni di Guidonia Montecelio e di Tivoli colpite dai fenomeni di subsidenza ed in attuazione dell'ordinanza del Presidente del Consiglio dei Ministri 9 novembre 2006, n. 3550 è stanziato il complessivo importo di 20 milioni di euro di cui 15 milioni di euro gravanti sull'esercizio 2007 e 5 milioni di euro sull'esercizio 2008.
+2. Agli oneri di cui al comma 1 si provvede mediante l'istituzione nel bilancio regionale, nell'ambito dell'UPB E46, di un apposito capitolo di spesa denominato "Concorso della Regione alla realizzazione degli interventi finalizzati alla messa in sicurezza delle zone dei Comuni di Tivoli e di Guidonia Montecelio colpite dai fenomeni di subsidenza".

@@ -1,0 +1,3 @@
+Art. 57
+Criteri per la concessione delle agevolazioni alle imprese (88)
+1. La Regione subordina la concessione alle imprese di agevolazioni previste dalla normativa dell'Unione europea, statale e regionale all'integrale applicazione dei contratti collettivi di lavoro nazionali e territoriali di settore nonché al rispetto della normativa vigente in materia di regolarità contributiva, assicurativa e di diritto al lavoro dei disabili. La Regione, con apposito provvedimento, individua un sistema premiante per le imprese che privilegino i rapporti di lavoro a tempo indeterminato o portino a termine percorsi di stabilizzazione dei contratti a tempo determinato o di tipo precario (89).

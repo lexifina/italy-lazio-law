@@ -1,0 +1,9 @@
+Art. 26
+Misure straordinarie per la valorizzazione del patrimonio regionale
+1. Al fine di razionalizzare e valorizzare il patrimonio regionale esistente e migliorare la funzionalità delle strutture istituzionali, il Consiglio regionale, su proposta della Giunta, approva entro il 31 marzo 2007 un piano di riorganizzazione del patrimonio adibito a sede istituzionale.
+2. Il piano di cui al comma 1 deve contenere uno studio di fattibilità per verificare la possibilità di valorizzare l'Ospedale Forlanini di Roma come sede delle strutture istituzionali e del Consiglio regionale del Lazio.
+3. Sono stanziati a favore dell'Azienda ospedaliera San Camillo-Forlanini 20 milioni di euro per opere di ristrutturazione finalizzate al trasferimento presso l'Ospedale San Camillo delle strutture sanitarie operanti nell'Ospedale Forlanini.
+4. Sono stanziati a favore del Comune di Roma 20 milioni di euro per le opere di mobilità e infrastrutturali finalizzate al miglioramento dell'accessibilità dell'area interessata.
+5. La Giunta regionale è autorizzata ad adottare, di concerto con il Consiglio regionale, una procedura di evidenza pubblica per l'individuazione di un soggetto interessato contestualmente all'acquisto e alla valorizzazione della sede di via della Pisana e di altre sedi istituzionali, assumendosi l'onere dei lavori di ristrutturazione della struttura che attualmente ospita l'Ospedale Forlanini.
+6. Agli oneri di cui al comma 3 si provvede mediante gli stanziamenti di cui all'UPB H22.
+7. Agli oneri di cui al comma 4 si provvede mediante istituzione, nell'ambito dell'UPB H22, di apposito capitolo denominato "Finanziamento all'Azienda ospedaliera San Camillo-Forlanini per opere di ristrutturazione" con lo stanziamento di 5 milioni di euro per l'anno 2007 e di 15 milioni di euro per l'anno 2008.

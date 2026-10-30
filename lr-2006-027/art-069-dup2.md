@@ -1,0 +1,10 @@
+Art. 69
+Ristrutturazione del patrimonio scolastico regionale
+1. La Regione promuove un programma straordinario di costruzione od acquisizione e di manutenzione straordinaria dell'intero patrimonio scolastico del Lazio, con particolare riferimento agli edifici scolastici di competenza dei comuni e delle province (100).
+2. Il programma straordinario si articola in un programma triennale 2007-2009, con uno stanziamento complessivo di 200 milioni di euro per il triennio, di cui il 70 per cento per gli interventi dei comuni a valere sul capitolo F16501 (L.R. n. 12/1981 e L.R. n. 13/1981) e il 30 per cento per gli interventi delle province a valere sul capitolo F16503 (L.R. n. 6/1999, art. 52).
+3. La Giunta regionale è autorizzata ad inserire il programma straordinario all'interno del programma di emissione di obbligazioni etiche di cui all'articolo 1, comma 20, della legge regionale 18 settembre 2006, n. 10.
+4. La Regione, nell'ambito degli interventi di manutenzione straordinaria e costruzione od acquisizione di nuovi edifici scolastici previsti dalla legge regionale 16 febbraio 1981, n. 12 (Norme in materia di edilizia scolastica) e successive modifiche nonché dall'articolo 52 della legge regionale 7 giugno 1999, n. 6, relativo all'istituzione di un fondo straordinario per l'edilizia scolastica, promuove la diffusione di interventi di messa in sicurezza, risparmio energetico e utilizzo di fonti rinnovabili (101).
+5. Nell'ambito degli stanziamenti previsti sul capitolo F16501 e sul capitolo F16503 sono prioritariamente finanziati i progetti presentati da comuni e province aventi le caratteristiche di cui al comma 4.
+5-bis. L'eventuale proposta di acquisizione di nuovi edifici scolastici deve essere accompagnata dal parere favorevole del Comitato regionale per i lavori pubblici espresso ai sensi dell'articolo 3, comma 1, lettera e-quater), della legge regionale 31 gennaio 2002, n. 5 (Comitato regionale per i lavori pubblici) e successive modifiche (102).
+TITOLO V
+Disposizioni varie

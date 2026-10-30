@@ -1,0 +1,4 @@
+Art. 71
+Iniziative volte a favorire la memoria storica sulla tragedia dell'olocausto
+1. La Regione si impegna a favorire le iniziative intraprese dagli enti locali e dalle istituzioni scolastiche relative alla valorizzazione della memoria storica sulla tragedia dell'olocausto. La Presidenza della Giunta regionale presenta annualmente un piano di interventi comprendenti, tra l'altro, il finanziamento di visite di studenti di campi di sterminio. Le modalità di applicazione della presente norma vengono regolamentate dalla Giunta regionale sentite le commissioni competenti.
+2. Per le finalità previste dal presente articolo nel bilancio della Regione per l'esercizio finanziario 2007 è istituito, nell'ambito dell'UPB G11, un apposito capitolo di spesa denominato "Iniziative volte a favorire la memori storica sulla tragedia dell'olocausto" con uno stanziamento di 150 mila euro.

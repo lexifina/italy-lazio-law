@@ -1,0 +1,5 @@
+Art. 55
+Istituzione di un capitolo per l'attuazione di un progetto unitario e integrato di rete ferroviaria regionale e metropolitana
+1. È istituito nell'ambito dell'UPB D44 un capitolo denominato "Anticipazione regionale delle risorse FAS e delle risorse comunitarie destinate all'accordo programma-quadro (APQ) rete ferroviaria regionale" per l'attuazione di un progetto unitario e integrato di rete ferroviaria regionale e metropolitana di cui al protocollo d'intesa siglato in data 14 febbraio 2006 dal Presidente della Regione con i Presidenti delle Province di Frosinone, Latina, Rieti, Roma e Viterbo, dal Sindaco del Comune di Roma e da Ferrovie dello Stato S.p.A. e Rete Ferroviaria Italiana S.p.A.
+2. Lo stanziamento di una quota pari a 7 milioni di euro suddivisi per ogni annualità nel settennio 2007-2013, è destinato quale contributo della Regione al cofinanziamento regionale per la realizzazione degli obiettivi di cui all'accordo programma-quadro (APQ) rete ferroviaria regionale.
+3. A recupero delle risorse FAS e comunitarie per un importo complessivo di 49 milioni di euro si provvede all'atto della formale assegnazione di tali risorse.

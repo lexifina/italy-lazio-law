@@ -1,0 +1,6 @@
+Art. 33
+Reclutamento del personale della Regione e degli enti da essa dipendenti
+1. Al fine di assicurare il concorso della Regione e degli enti da essa dipendenti alla realizzazione degli obiettivi di finanza pubblica, gli enti dipendenti dalla Regione limitatamente ai profili professionali coincidenti con quelli regionali sono tenuti, prima di ricorrere a procedure concorsuali, con esclusione delle progressioni verticali previste dai contratti collettivi di lavoro, a reclutare il proprio personale mediante l'utilizzo delle graduatorie dei concorsi pubblici espletati dalla Giunta regionale pubblicati sul Bollettino Ufficiale della Regione n. 36, supplementi ordinari n. 4, 5 e 6, del 30 dicembre 2003.
+1-bis. Al fine di consentire la migliore utilizzazione delle risorse umane, il Consiglio regionale, previo accordo con la Giunta regionale e su richiesta dei soggetti interessati, può procedere all'assunzione dei vincitori dei concorsi pubblici di cui al comma 1 espletati dalla Giunta regionale, già appartenenti al ruolo del Consiglio regionale, nell'ambito del numero di assumendi definito dalla competente struttura della Giunta regionale e nel rispetto dell'ordine di graduatoria (14).
+Capo III
+Disposizioni relative alla decisione di bilancio

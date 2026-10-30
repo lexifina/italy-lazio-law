@@ -1,0 +1,4 @@
+Art. 66
+Anticipazione della programmazione dei fondi comunitari
+1. La Regione, al fine di ottimizzare l'impiego delle risorse comunitarie, definisce, prima della redazione del programma operativo, previsto dagli articoli di cui al presente titolo, nell'ambito degli assi di riferimento previsti dall'Unione europea, programmi di intervento, allocando risorse dei fondi FAS e FESR e cofinanziamenti nazionali e regionali, per complessivi 1512 milioni di euro, di cui 280 milioni di euro per l'asse innovazione ed economia della conoscenza, 567 milioni di euro per l'asse ambiente e prevenzione dei rischi e 565 milioni di euro per l'asse accessibilità.
+2. Nei programmi operativi riguardanti l'utilizzo del FESR e del FAS può essere variata la distribuzione delle risorse tra gli assi nel limite del 10 per cento.

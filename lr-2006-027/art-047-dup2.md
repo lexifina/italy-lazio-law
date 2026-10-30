@@ -1,0 +1,13 @@
+Art. 47
+Ulteriori interventi straordinari in favore di soci di cooperative edilizie in difficoltà economiche.
+1. Fermi restando i requisiti di cui all'articolo 1 della legge regionale 3 agosto 2004, n. 10 (Interventi straordinari in favore di soci di cooperative edilizie in difficoltà economiche), la Regione concede un contributo a fondo perduto di 10 mila euro in favore dei soggetti partecipanti all'avviso pubblico di cui alla Delib.G.R. 12 novembre 2004, n. 1045 (legge regionale n. 10/2004. Definizione dei criteri e modalità di erogazione dei contributi straordinari a favore dei soci di cooperative edilizie in difficoltà economiche) che sono stati ricompresi negli elenchi 3 e 5 allegati alla Delib.G.R. 16 maggio 2006, n. 284 (legge regionale n. 10/2004. Definizione dei criteri e modalità di erogazione dei contributi straordinari a favore dei soci di cooperative edilizie in difficoltà economiche. Graduatoria definitiva di ammissibilità al contributo) e che sono, nel seguente ordine di priorità:
+a) soci di cooperative partecipanti al bando denominato "20.000 abitazioni in affitto";
+b) soci di cooperative che hanno fruito di contributi pubblici non regionali;
+c) soci di cooperative che non hanno usufruito di alcun contributo pubblico.
+2. In relazione a quanto previsto al comma 1, coloro che non hanno partecipato all'avviso pubblico di cui al medesimo comma possono presentare domanda entro il termine di sessanta giorni decorrente dalla data di entrata in vigore della presente legge.
+3. Il socio può indicare alla Regione una persona del proprio nucleo familiare fino al secondo grado di parentela, a cui concedere in alternativa il contributo regionale, che sia in possesso dei prescritti requisiti soggettivi, quale assegnatario dell'alloggio.
+4. I contributi sono concessi nei limiti delle disponibilità finanziarie programmate per le finalità della presente legge, secondo l'ordine indicato ai commi precedenti e in subordine con priorità ai richiedenti con il reddito complessivo familiare più basso.
+5. Sono in ogni caso escluse le domande di soci di cooperative edilizie le cui condizioni di difficoltà economiche, previste dall'articolo 1 della L.R. n. 10/2004, si sono verificate successivamente all'entrata in vigore del decreto legislativo 20 giugno 2005, n. 122 (Disposizioni per la tutela dei diritti patrimoniali degli acquirenti di immobili da costruire, a norma della legge 2 agosto 2004, n. 210).
+6. Gli oneri derivanti dall'attuazione del presente articolo gravano sugli stanziamenti dell'UPB C22 del bilancio regionale a valere sulla programmazione fondi di edilizia residenziale pubblica agevolata.
+Capo III
+Edilizia residenziale pubblica

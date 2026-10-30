@@ -1,0 +1,5 @@
+Art. 13
+Sistema di pagamento dei beni e servizi del servizio sanitario regionale
+1. Al fine di favorire certezza e puntualità nei pagamenti ed agevolare il processo di certificazione, a partire dal 1° gennaio 2007 il sistema di verifica e controllo dei pagamenti del servizio sanitario regionale è gestito in modo unificato e centralizzato a cura dell'assessorato regionale competente in materia di bilancio, programmazione economico-finanziaria e partecipazione in collaborazione con l'assessorato regionale competente in materia di sanità.
+2. La Regione realizza il sistema informativo necessario per la gestione del sistema di cui al comma 1. Entro l'anno 2007 sono altresì uniformati i sistemi informativi e di contabilità analitica di tutti gli enti del servizio sanitario regionale.
+3. Le informazioni desumibili dal sistema informativo dei pagamenti sono messe a disposizione, fatta salva la tutela della riservatezza, della cabina di regia istituita ai sensi dell'articolo 131 della legge regionale 28 aprile 2006, n. 4 (Legge finanziaria regionale per l'esercizio 2006) e successive modifiche, per lo svolgimento delle attività di sua competenza.

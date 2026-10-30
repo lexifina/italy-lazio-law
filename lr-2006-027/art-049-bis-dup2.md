@@ -1,0 +1,7 @@
+Art. 49 bis
+Alloggi in amministrazione condominiale (49)
+1. Negli immobili i cui alloggi sono ceduti in tutto o in parte in proprietà, l'amministrazione è tenuta in forma condominiale.
+2. Fino al momento della costituzione del condominio, l'ente gestore continua a svolgere le funzioni di amministrazione ordinaria. In tale fase gli assegnatari in proprietà hanno l'obbligo di corrispondere all'ente gestore le quote per spese generali, di amministrazione e manutenzione. L'ente gestore rendiconta le spese di manutenzione ed emette fatturazione detraibile per le spese di manutenzione straordinaria. In ogni caso resta l'obbligo per gli acquirenti di corrispondere all'ente gestore le quote afferenti al servizio di rendicontazione e di esazione delle rate di riscatto.
+3. Le disposizioni di cui al comma 2 si applicano, altresì, agli assegnatari in locazione con patto di futura vendita.
+4. Nei casi di cui al comma 2, l'ente gestore è tenuto a separare la gestione dell'amministrazione ordinaria degli alloggi in locazione da quella degli alloggi ceduti in proprietà.
+5. Gli assegnatari in locazione di alloggi compresi negli stabili a regime condominiale hanno il diritto di voto, in luogo dell'ente gestore, per le delibere relative alle spese ed alle modalità di gestione dei servizi a rimborso, ivi compreso il riscaldamento. Le spese relative a tali servizi sono versate direttamente all'amministrazione del condominio, cui compete di agire anche in giudizio per il recupero nei confronti degli assegnatari in locazione inadempienti o morosi.

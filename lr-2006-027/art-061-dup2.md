@@ -1,0 +1,3 @@
+Art. 61
+Modifiche alla legge regionale 12 settembre 1977, n. 35 concernente "Tabelle parametriche regionali e norme di applicazione della legge 28 gennaio 1977, n. 10, per la determinazione del contributo per le spese di urbanizzazione gravanti le concessioni edilizie" e successive modifiche
+1. Al primo comma dell'articolo 20 della L.R. n. 35/1977, dopo le parole: "singole zone." sono aggiunte le seguenti: "Con la medesima deliberazione i comuni con popolazione residente superiore a cinquemila abitanti possono ulteriormente aumentare, in misura non superiore al 20 per cento, i suddetti costi base di urbanizzazione in relazione all'incidenza degli oneri concernenti le infrastrutture per la mobilità e per la sosta.".

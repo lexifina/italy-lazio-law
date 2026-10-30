@@ -1,0 +1,3 @@
+Art. 28
+Termine per la definizione dei requisiti di accreditamento delle strutture sanitarie
+1. Al fine di rendere effettivo il sistema di accreditamento delle strutture sanitarie pubbliche e private entro il termine del 31 agosto 2007, la Giunta regionale, entro sessanta giorni dalla data di entrata in vigore della presente legge, provvede all'adempimento di cui all'articolo 13 della legge regionale 3 marzo 2003, n. 4 (Norme in materia di autorizzazione alla realizzazione di strutture e all'esercizio di attività sanitarie e socio-sanitarie, di accreditamento istituzionale e di accordi contrattuali).
