@@ -1,0 +1,2 @@
+L.R. 15 Gennaio 1983, n. 3
+Modifica alla legge regionale concernente: << Inquadramento nei ruoli regionali del personale comandato ai sensi delle leggi 17 aprile 1974, n. 386, 29 giugno 1977, n. 349, 23 dicembre 1978, n. 833, del personale messo a disposizione ai sensi del decreto del Presidente della Repubblica 24 luglio 1977, n. 616 e del personale di cui al decreto del Presidente della Repubblica 20 dicembre 1979, n. 761 >>. (1)
