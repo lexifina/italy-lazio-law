@@ -1,0 +1,7 @@
+Art. 15 bis
+(Programmazione regionale sulle politiche di sviluppo, coesione e di investimento dell'Unione europea) (6o)
+La Regione, al fine assicurare la piena attuazione delle politiche europee che contribuiscono allo sviluppo regionale, partecipa ai piani, programmi e progetti promossi dall'Unione europea.
+Il Consiglio regionale, nell'ambito delle proprie competenze, approva, su impulso della commissione consiliare permanente competente in materia di affari europei, gli atti di indirizzo propedeutici all'elaborazione della programmazione regionale relativa alle politiche di sviluppo, coesione e di investimento europee.
+Con riferimento all'implementazione delle politiche di sviluppo, coesione e di investimento, in ottemperanza al principio di sussidiarietà, la Regione garantisce il coinvolgimento degli enti locali e delle loro forme associative utilizzando tutte le sedi e gli strumenti che garantiscano la loro più ampia partecipazione.
+CAPO VI
+RAPPORTI INTERNAZIONALI
