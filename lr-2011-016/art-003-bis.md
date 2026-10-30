@@ -1,0 +1,4 @@
+Art. 3 bis
+(Registro regionale degli impianti a biomassa) (8)
+1.Al fine di provvedere al controllo e ad un costante monitoraggio della diffusione degli impianti alimentati a biomasse forestali sul territorio regionale, è istituita, presso la struttura regionale competente in materia, una banca dati degli impianti a biomassa con potenza termica uguale o superiore a 50 kW termici, denominata "Registro regionale degli impianti a biomassa" (RIB).
+2. La Giunta regionale, entro centoventi giorni dalla data di entrata in vigore della presente disposizione, con regolamento approvato ai sensi dell'articolo 47, comma 2, lettera b), dello Statuto, nel rispetto delle disposizioni statali vigenti in materia, disciplina le modalità di funzionamento del registro e i compiti in capo ai proprietari degli impianti.
