@@ -1,0 +1,11 @@
+SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Definizioni)
+Art. 3 (Ruolo della Regione)
+Art. 4 (Piano triennale di indirizzo in materia di open innovation)
+Art. 5 (Piano operativo annuale degli interventi per gli open innovation center)
+Art. 6 (Elenco regionale degli open innovation center)
+Art. 7 (Rispetto della normativa dell'Unione europea sugli aiuti di Stato)
+Art. 8 (Clausola di valutazione degli effetti finanziari)
+Art. 9 (Disposizioni finanziarie)
+Art. 10 (Entrata in vigore)
