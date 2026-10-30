@@ -1,0 +1,3 @@
+Art. 2
+1. I comuni di Civitavecchia e Santa Marinella, ai fini di una necessaria unità territoriale e per consentire una efficace programmazione degli interventi capace di assicurare un effettivo riequilibrio socio-economico sui Monti della Tolfa, sono inclusi parzialmente nella III zona di cui al precedente articolo.
+2. La III zona omogenea di cui alla lettera c) del primo comma dell'art. 8 della legge regionale 2 maggio 1973, n. 16, è pertanto, delimitata dai territori dei comuni di Allumiere e Tolfa, per intero, e dai territori dei comuni di Civitavecchia e Santa Marinella per la parte indicata nella planimetria allegata alla presente legge (Omissis) ed è considerata comprensorio di bonifica montana ai sensi dell'art. 14 della legge 25 luglio 1952, n. 991.
