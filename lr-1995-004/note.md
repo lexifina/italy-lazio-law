@@ -1,0 +1,19 @@
+Note:
+(1) Pubblicata sul BUR 13 febbraio 1995, n. 4 (S.O. n. 3).
+Riprodotta sulla G.U. della Repubblica 4 novembre 1995, n. 44 (S. S. 3).
+(2). Per utile ed opportuno coordinamento si riporta integralmente il testo dell'art. 51 e dell'art. 60 della legge regionale 22 maggio 1997, n. 11:
+"51. 1. E' costituito ai sensi della legge regionale n. 4 del 1995, un Fondo speciale da conferire in gestione alla FILAS S.p.A. per l'attuazione di programmi ed azioni sperimentali ed innovativi di valorizzazione delle risorse umane. La gestione del Fondo è regolata da apposite convenzioni che devono recepire le modalità e le procedure di attuazione previste dai singoli programmi.
+2. Affluiscono al predetto Fondo le risorse assegnate alla Regione per l'attuazione del piano di valorizzazione delle risorse umane per il Giubileo del 2000. La FILAS S.p.A gestisce queste risorse seguendo le direttive impartite dal comitato tecnico di cui al comma 4. Possono altresì affluire al Fondo le risorse destinate all'attuazione di ulteriori programmi sperimentali ed innovativi che possono essere successivamente previsti nel contesto dei programmi cofinanziati dall'Unione Europea.
+3. Per i programmi di cui sopra relativi alla formazione dei dipendenti della pubblica amministrazione, la Regione si avvale dell'IRFOD, nei limiti delle competenze e delle disponibilità dell'istituto stesso.
+4. Per sovraintendere all'attuazione degli interventi previsti dal piano di valorizzazione delle risorse umane per il Giubileo del 2000 viene istituito un comitato tecnico composto dall'Assessore alla scuola, formazione professionale e politiche per il lavoro, o da un funzionario regionale suo delegato, in rappresentanza della Regione e da un rappresentante dell'Agenzia romana per la preparazione del Giubileo. Il comitato tecnico si avvale dell'assistenza della FILAS S.p.A. e ne coordina il ruolo gestionale delle risorse. Compito del comitato è inoltre provvedere alla definizione di metodiche e strumenti per la verifica in itinere dell'avanzamento, per la certificazione delle attività svolte e la rendicontazione della spesa.
+60. 1. Per l'attuazione degli interventi nella Regione Lazio, previsti dalla misura 9 del programma operativo Konver - Italia approvato con decisione della Commissione dell'Unione Europea n. C(96) 30 24, è costituito, ai sensi della legge regionale n. 4 del 1995, un fondo speciale da conferire in gestione alla FI.LA.S. S.p.A..
+2. La gestione del fondo è regolata da apposita convenzione.
+3. Affluiscono al fondo speciale le risorse di cui alle quote di finanziamento comunitario, nazionale e regionale previste dalla predetta decisione, nonchè gli eventuali ulteriori finanziamenti attribuiti al programma Konver da successivi provvedimenti dell'Unione Europea, dello Stato, della Regione.
+4. L'onere a carico della Regione, comprensivo dei costi di assistenza tecnica, graverà sul capitolo di nuova istituzione 24981 "Finanziamento del PIC-Konver - quota Regione.".
+(2a) Per utile coordinamento, si ritiene opportuno riportare integralmente il testo dell'art. 24, comma 12, della legge regionale 7 giugno 1999, n.6:
+"24. (Omissis).
+12. La legge regionale 10 febbraio 1995, n. 4 e successive modifiche è abrogato con effetto dalla data di costituzione dell'Agenzia. Nelle leggi regionali che prevedono fondi speciali affidati in gestione alla F.I.L.A.S. S.p.A. il riferimento a quest'ultima società deve intendersi effettuato all'Agenzia a decorrere dalla data di definizione delle operazioni di subentro ai sensi del comma 9.
+(Omissis).".
+(3) Comma così sostituito dall'art. 49 della legge regionale 22 maggio 1997, n. 11.
+(4) Articolo così sostituito dall'art. 54 della legge regionale 18 maggio 1998, n. 14.
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
