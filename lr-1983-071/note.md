@@ -1,0 +1,4 @@
+Note:
+(1) Legge pubblica sul Bollettino ufficiale della Regione del 10 dicembre 1983, n. 34
+(2) Legge abrogata dal numero 15) dell'allegato C alla legge regionale 20 giugno 2017, n. 6
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
