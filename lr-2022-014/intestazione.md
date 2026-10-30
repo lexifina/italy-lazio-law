@@ -1,0 +1,13 @@
+[SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Principi)
+Art. 3 (Istituzione e disciplina dell'Ente di governo d'ambito territoriale ottimale)
+Art. 4 (Disposizioni per la gestione dei rifiuti nel territorio di Roma Capitale)
+Art. 5 (Compiti dell'EGATO)
+Art. 6 (Piano d'ambito)
+Art. 7 (Affidamento del servizio)
+Art. 8 (Poteri sostitutivi)
+Art. 9 (Osservatorio regionale sugli ATO)
+Art. 10 (Pubblicità)
+Art. 11 (Clausola di non onerosità)
+Art. 12 (Entrata in vigore)
