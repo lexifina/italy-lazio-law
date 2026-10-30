@@ -1,0 +1,2 @@
+L.R. 12 Settembre 1978, n. 52
+Norme di integrazione della legge regionale 23 settembre 1974, n. 65.(Inquadramento nei ruoli regionali del personale assunto nell'anno scolastico 1973/1974 presso i centri di addestramento professionale nonchŠ di altre categorie di personale gi… in servizio presso la Regione ed integrazione della legge regionale n. 20 del 29 maggio 1973 e successive modificazioni ed integrazioni.) (1)
