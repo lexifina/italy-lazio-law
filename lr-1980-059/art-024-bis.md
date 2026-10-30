@@ -1,0 +1,6 @@
+Art. 24 bis (16)
+(Asili nido presso strutture di lavoro)
+1. La Regione, nel quadro della politica educativa e formativa della prima infanzia, promuove interventi che consentano l'educazione e la formazione dei bambini di età inferiore ai tre anni in prossimità dell'ambiente di lavoro dei rispettivi genitori con conseguente creazione di asili nido.
+2. Gli asili nido di cui al comma 1 possono essere istituiti su iniziativa di enti pubblici, di privati, dei consorzi industriali o di aziende di produzione singole o consorziate che abbiano alle loro dipendenze un numero di lavoratori con bambini in età fino ai tre anni in numero tale da giustificare la realizzazione della struttura e comunque in numero non inferiore a venti unità.
+3. L'autorizzazione per l'apertura degli asili nido di cui al comma 1 è rilasciata dal comune nel cui territorio ha sede la struttura, qualora questa possieda i requisiti previsti dalla normativa vigente.
+4. Nei limiti della disponibilità di bilancio, ai fini di cui al comma 1, la Regione destina una percentuale non superiore al due per cento del capitolo 42131, secondo i criteri individuati con deliberazione della Giunta regionale, per contributi ad asili nido convenzionati con i comuni, istituiti in strutture di lavoro pubbliche, private e/o aziendali.
