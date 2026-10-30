@@ -1,0 +1,2 @@
+L.R. 28 Aprile 1983, n. 23
+Proroga dei termini di scadenza delle domande intese ad ottenere la concessione dei contributi per l'esercizio dei servizi pubblici di trasporto collettivo di persone e di cose di competenza regionale e locale, ai sensi del primo comma dell'articolo 11 della legge regionale 22 settembre 1982, n. 42, nonche' per l'assegnazione dei contributi per i programmi di investimenti di cui alla legge regionale 22 settembre 1982, n.45. (1) (2)
