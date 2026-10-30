@@ -1,0 +1,2 @@
+L.R. 14 Febbraio 2005, n. 7
+Modifiche alla legge regionale 26 ottobre 1993, n. 58 concernente il trasporto pubblico non di linea, come modificata dalla legge regionale 22 maggio 1995, n. 32 e dalla legge regionale 16 giugno 2003, n. 16. Modifiche alla legge regionale 6 agosto 1999, n. 14 . (Organizzazione delle funzioni a livello regionale e locale per la realizzazione del decentramento amministrativo) e successive modifiche. Disposizione transitoria (1)

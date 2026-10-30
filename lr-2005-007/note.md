@@ -1,0 +1,6 @@
+Note:
+(1) Legge pubblicata sul Bollettino Ufficiale della Regione Lazio del 19 febbraio 2005, n. 5
+(2) Comma inserito dall'articolo 54, comma 1, lettera a) della legge regionale 17 febbraio 2005, n. 9. Con avviso di rettifica pubblicato sul Bollettino Ufficiale della Regione Lazio del 10 novembre, 2005 n. 31 si è provveduto a rettificare la modifica introdotta dall'articolo 42, comma 1, lettera a) della legge regionale 15 settembre 2005, n. 16 che sostituiva la parola: "novanta" con la parola: "centoventi"
+(3) Con avviso di rettifica pubblicato sul Bollettino Ufficiale della Regione Lazio del 10 novembre, 2005 n. 31si è provveduto a rettificare la modifica introdotta dall'articolo 42, comma 1, lettera b) della legge regionale 15 settembre 2005, n. 16 che sostituiva le parole: "sei mesi dalla data di entrata in vigore della presente legge" con le seguenti: "il 31 dicembre 2005"
+(4) Comma modificato dall'articolo 54, comma1, lettera b) della legge regionale 17 febbraio 2005, n. 9 e da ultimo modificato dall'articolo 42, comma 1, lettera a) della legge regionale 15 settembre 2005, n. 16; vedi anche l'avviso di rettifica pubblicato sul Bollettino Ufficiale della Regione Lazio del 10 novembre 2005, n. 31
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
