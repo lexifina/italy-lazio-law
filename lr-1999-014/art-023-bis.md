@@ -1,0 +1,15 @@
+Art. 23 bis (9b)
+(Altri strumenti della programmazione negoziata)
+1. Gli interventi che coinvolgono una molteplicità di soggetti pubblici e privati ed implicano decisioni istituzionali e risorse finanziarie a carico delle amministrazioni statali, della Regione e degli enti locali possono essere regolati sulla base dei seguenti ulteriori strumenti della programmazione negoziata regionale:
+a) l'accordo quadro di sviluppo territoriale;
+b) il programma integrato di sviluppo locale;
+c) il contratto di recupero produttivo;
+d) il patto locale per il turismo e per l'artigianato.
+2. Possono partecipare agli strumenti di programmazione negoziata di cui al comma 1, enti locali singoli e associati, amministrazioni pubbliche, enti pubblici ed aziende pubbliche, forze sociali ed associazioni, imprese ed altri soggetti pubblici e privati interessati dagli interventi previsti.
+3. Gli interventi di programmazione negoziata di cui al comma 1 sono approvati dalla Giunta regionale sentite le commissioni consiliari competenti e le forze sociali datoriali e sindacali firmatarie dell'intesa sulla rappresentanza dell'ottobre 2013 con la Regione.
+4. La Giunta regionale, previo parere della competente commissione consiliare permanente, disciplina con apposito regolamento ai sensi dell'articolo 47, comma 2, lettera b), dello Statuto, le finalità, le caratteristiche e le modalità di attuazione degli strumenti della programmazione negoziata di cui al comma 1 e la loro integrazione con gli altri strumenti di programmazione negoziata previsti da norme e programmi regionali, nazionali ed europei, nonché le modalità di contribuzione regionale agli studi di cui al comma 6.
+5. La Giunta regionale trasmette al Consiglio regionale, entro il 30 settembre di ogni anno, una relazione sullo stato di attuazione degli strumenti della programmazione negoziata di cui al comma 1 sottoscritti.
+6. La Regione può contribuire al sostegno di studi propedeutici allo sviluppo e all'attuazione degli strumenti di programmazione negoziata, istituendo borse di studio finalizzate a promuovere tesi di laurea in materia di sviluppo territoriale.
+7. Per l'attuazione di strumenti di programmazione negoziata da essa sottoscritti, la Regione può contribuire al sostegno degli interventi previsti, mediante le risorse iscritte, a legislazione vigente, nel bilancio della Regione, nonché con risorse nazionali, comunitarie e private.
+8. L'elenco degli strumenti di programmazione negoziata di cui al comma 1 promuovibili e sottoscrivibili dalla Regione, ad esclusione dei contratti di recupero produttivo, è definito annualmente nell'ambito del documento di economia e finanza regionale approvato dal Consiglio regionale che specifica le risorse ad essi dedicati.
+9. Gli strumenti di programmazione negoziata sottoscritti dalla Regione sono pubblicati nella sezione "Amministrazione trasparente" dei siti istituzionali.
