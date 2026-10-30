@@ -1,0 +1,7 @@
+Note:
+(1) Legge pubblicata sul Bollettino ufficiale della Regione del 27 agosto 2011, n. 32, s.o. n. 160
+(2) Comma modificato dall'articolo 3, comma 84, lettera a) della legge regionale 31 dicembre 2016, n. 17. Vedi, al riguardo, la deliberazione della Giunta regionale 18 novembre 2011, n. 542 (Approvazione dello schema di Atto costitutivo e di Statuto di lazio Ambiente S.p.A.) pubblicata sul BUR 28 dicembre 2011, n. 48; determinazione del Direttore del Dipartimento Programmazione Economica e Sociale del 29 dicembre 2011, n. B10130 recante "Legge Regionale n. 15/2011 - Costituzione della Lazio Ambiente S.p.A. - unipersonale. Sottoscrizione per intero del capitale sociale. Impegno per la costituzione del capitale sociale e per futuri aumenti di capitale sociale. Capitolo C16525 del bilancio 2011"; decreto del Presidente della Regione del 28 gennaio 2013, n. T00006 (Lazio Ambiente S.p.A. - unipersonale. Nomina Amministratore Unico) pubblicato sul BUR 5 febbraio 2013, n. 11
+(3a) Numero aggiunto dall'articolo 22, comma 115, della legge regionale 27 febbraio 2020, n. 1
+(3) Lettera modificata dall'articolo 3, comma 84, lettera b) della legge regionale 31 dicembre 2016, n. 17
+(4) Comma abrogato dalla data di perfezionamento della procedura di alienazione prevista dall'articolo 3, coma 85 della legge regionale 31 dicembre 2016, n. 17, ai sensi dell'articolo 3, comma 84, lettera c) della medesima legge regionale.
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
