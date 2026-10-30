@@ -1,0 +1,7 @@
+Note:
+(1) Legge pubblicata sul Bollettino ufficiale della Regione del 13 marzo 2010, n. 10, s.o. n. 51
+(2) Comma modificato dell'articolo 9, comma 117, della legge regionale 23 novembre 2022, n. 19. Vedi, anche, determinazione del Direttore regionale Territorio, Urbanistica, Mobilità e Rifiuti del 12 settembre 2013, n. AO7192
+(3) Vedi, al riguardo, la deliberazione della Giunta regionale dell'8 ottobre 2010, n. 435 (Approvazione dello Statuto e dell'atto costitutivo della Laziomar s.p.a., società per azioni di trasporto marittimo regionale)
+(4) Vedi deliberazione della Giunta regionale dell'11 febbraio 2011, n. 51 (Presa d'atto e consenso, per quanto di competenza alla stregua della vigente normativa di settore, alla sottoscrizione dello schema di contratto di cessione di ramo d'azienda, comprensivo dei relativi allegati, tra la Caremar S.p.A. e la Laziomar S.p.A., ai fini dell'acquisizione a titolo gratuito - ai sensi dall'articolo 19-ter, comma 3, del D.L. n. 135/2009 così come convertito dalla L. n. 166/2009 - del ramo d'azienda ceduto dalla Caremar S.p.A. relativo ai collegamenti marittimi con le isole pontine, così come anche previsto dall'art. 1, comma 1, della L. R. n. 2/2010)
+(5) Dal 1° gennaio 2012 agli oneri derivanti dalla presente legge si provvede con il capitolo di spesa D41900
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
