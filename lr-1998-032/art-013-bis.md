@@ -1,0 +1,3 @@
+Art. 13 bis (9)
+(Attività degli ispettorati micologici)
+1. Con apposita deliberazione(9a), la Giunta regionale determina funzioni e attività che competono agli ispettorati micologici delle aziende sanitarie locali di cui all'articolo 13, in ordine alla certificazione e al controllo ufficiale dei funghi epigei spontanei freschi, congelati, secchi o altrimenti conservati destinati al consumo umano, alla commestibilità delle specie fungine presentate al controllo dai privati cittadini/raccoglitori, nonché ogni ulteriore funzione e attività necessaria per dare piena attuazione alla presente legge.
