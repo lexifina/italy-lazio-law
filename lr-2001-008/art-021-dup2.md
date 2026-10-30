@@ -1,0 +1,4 @@
+Art. 21
+(Disciplina degli impianti di distribuzione di carburanti ad uso privato)
+1. Ai sensi dell'articolo 3, comma 10, del d.lgs. 32/1998 e successive modificazioni, l'autorizzazione per l'installazione e per l'esercizio di nuovi impianti di distribuzione di carburanti ad uso privato, per rifornire esclusivamente gli autoveicoli dell'impresa produttiva di beni e servizi titolare dell'autorizzazione stessa, è rilasciata dal comune alle medesime condizioni e nel rispetto della medesima disciplina applicabile per gli altri impianti di distribuzione, ad eccezione di quelle di cui agli articoli 11, 12 e 13, nonché di quelli di cui alla Sezione II del presente Capo.
+2. La distribuzione di carburanti a terzi, a titolo oneroso o gratuito, negli impianti di cui al comma 1 comporta la decadenza dell'autorizzazione.

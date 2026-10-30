@@ -1,0 +1,7 @@
+Art. 16
+(Orario festivo)
+1. I comuni ove siano presenti almeno quattro impianti di distribuzione di carburanti assistiti da personale devono assicurare, nelle domeniche e nei giorni festivi infrasettimanali, l'apertura del venticinque per cento degli impianti con l'osservanza dell'orario feriale. Qualora nel comune siano funzionanti non più di tre impianti, a richiesta del titolare dell'autorizzazione e del gestore, la percentuale suddetta può essere elevata al trentatre per cento o al cinquanta per cento.
+2. Gli impianti che effettuano i turni di apertura nei giorni domenicali possono sospendere la loro attività nelle giornata di lunedì, o, se questo è festivo, nel primo giorno feriale successivo. Nessun recupero è dovuto per le festività infrasettimanali. (13)
+3. I comuni ove siano funzionanti almeno due impianti assicurano turni di apertura il sabato pomeriggio o in altro giorno della settimana, nella percentuale del cinquanta per cento degli impianti medesimi.
+4. Per gli impianti che effettuano turni di cui al comma 3 non è prevista la sospensione dell'attività a titolo di recupero.
+5. L'effettuazione dei turni è determinata tenendo conto delle richieste avanzate dai titolari dell'autorizzazione e dai gestori interessati, nonché dell'esigenza di assicurare, in accordo con i comuni più vicini, il servizio di distribuzione nel modo più capillare possibile specie lungo le principali direttrici viarie.
