@@ -1,0 +1,11 @@
+SOMMARIO
+Art. 1 (Oggetto e finalità)
+Art. 2 (Distretto logistico-ambientale. Definizione)
+Art. 3 (Istituzione dei distretti logistico-ambientali)
+Art. 4 (Piano di distretto)
+Art. 5 (Monitoraggio e controllo dei distretti logistico-ambientali e dei Piani di distretto)
+Art. 6 (Progetti di sviluppo dei distretti logistico-ambientali)
+Art. 7 (Regolamento regionale)
+Art. 8 (Rispetto della normativa europea sugli aiuti di Stato)
+Art. 9 (Clausola di valutazione degli effetti finanziari)
+Art. 10 (Disposizioni finanziarie)
