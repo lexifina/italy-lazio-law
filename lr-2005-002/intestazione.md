@@ -1,0 +1,15 @@
+L.R. 13 Gennaio 2005, n. 2
+Disposizioni in materia di elezione del Presidente della Regione e del Consiglio regionale e in materia di ineleggibilità e incompatibilità dei componenti della Giunta e del Consiglio regionale (1)
+Sommario
+Art. 1 (Recepimento)
+Art. 2 (Elezione diretta del Presidente della Regione. Nomina a consigliere regionale del candidato alla carica di Presidente della Regione che ha conseguito un numero di voti validi immediatamente inferiore)
+Art. 3 (Composizione del Consiglio regionale)
+Art. 4 (Circoscrizioni elettorali e ripartizione dei seggi)
+Art. 5 (Indizione delle elezioni)
+Art. 5bis (Scheda elettorale e preferenza di genere)
+Art. 6 (Operazioni dell'Ufficio centrale regionale)
+Art. 7 (Cause di ineleggibilità)
+Art. 8 (Liste e candidature)
+Art. 9 (Spese per la campagna elettorale)
+Art. 9bis (Gestione del procedimento elettorale)
+Art. 10 (Urgenza)
