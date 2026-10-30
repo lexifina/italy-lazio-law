@@ -1,0 +1,10 @@
+SOMMARIO
+Art. 1 (Istituzione del Garante regionale per la tutela delle persone con disabilità)
+Art. 2 (Destinatari)
+Art. 3 (Funzioni)
+Art. 4 (Relazioni agli organi istituzionali)
+Art. 5 (Struttura organizzativa)
+Art. 6 (Elezione, incompatibilità e revoca)
+Art. 7 (Trattamento economico)
+Art. 8 (Disposizioni finanziarie)
+Art. 9 (Entrata in vigore)
