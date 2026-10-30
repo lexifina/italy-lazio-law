@@ -1,0 +1,2 @@
+L.R. 15 Novembre 1994, n. 58
+Urgenza della legge regionale approvata dal Consiglio regionale nella seduta del 5 ottobre 1994 (Leggasi: L.R. 15 novembre 1994, n. 57) concernente: "Modifiche alla legge regionale 29 agosto 1991, n. 42, concernente: "Disciplina per la cessione in propriet… degli alloggi degli Istituti autonomi case popolari del Lazio costruiti senza il contributo o il concorso dello Stato".
