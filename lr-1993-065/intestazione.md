@@ -1,0 +1,2 @@
+L.R. 15 Novembre 1993, n. 65
+Modifiche ed integrazioni alla legge regionale 23 marzo 1985, n. 27 concernente: "Subdelega alle province delle funzioni amministrative concernenti l'attività dei comitati provinciali prezzi, delegate dallo Stato alla Regione ai sensi dell'art. 52, primo comma, lettera c), del decreto del Presidente della Repubblica 24 luglio 1977, n. 616", come modificata dalla legge regionale 20 giugno 1988, n. 34. (1) (2)
