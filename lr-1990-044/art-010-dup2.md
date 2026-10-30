@@ -1,0 +1,7 @@
+Art. 10
+(Liquidazione della perdita)
+L'istituto darà comunicazione ala Regione delle risoluzioni dei contratti di finanziamento da esso disposte e provvederà ad esperire con diligenza le azioni esecutive da esso ritenute più opportune per il credito, dandone comunicazione periodica alla Regione.
+Ai fini dell'operatività della garanzia, sarà considerata perdita l'importo del credito rimasto insoluto per il quale l'istituto avrà motivamente dichiarato essere venuta meno ogni possibilità od opportunità di recupero
+Una volta pervenuta all'istituto primario la comunicazione dell'avvenuta ammissione dell'operazione alle agevolazioni, lo stesso provvederà alla stipulazione del contratto di mutuo che avrà la veste di scrittura privata.
+All'atto della stipula e comunque dopo aver acquisito gli effetti a garanzia ........... l'istituto primario provvederà alla erogazione del 50 per cento del finanziamento.
+Il saldo verrà erogato ad avvenuta dimostrazione dell'effettuazione dei lavori documentati da fatture quietanzate e da una perizia giurata attestante che l'investimento è stato effettuato secondo quanto autorizzato dall'istituto e dalla Regione e conformemente alla licenza edilizia, qualora necessaria, nonchè da una dichiarazione, resa per atto notorio, dell'interessato attestante che le opere oggetto dell'intervento sono state ultimate nei termini di cui all'art. 5 della legge regionale n. .......... del ........
