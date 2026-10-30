@@ -1,0 +1,2 @@
+L.R. 26 Ottobre 1993, n. 58
+Disposizioni per l'esercizio del trasporto pubblico non di linea e norme concernenti il ruolo dei conducenti dei servizi pubblici di trasporto non di linea, di cui all'art. 6 della legge 15 gennaio 1992, n. 21. (1) (1a)

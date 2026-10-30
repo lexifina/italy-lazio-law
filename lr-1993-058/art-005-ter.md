@@ -1,0 +1,3 @@
+Art. 5 ter (4b)
+(Contratti con enti pubblici e privati)
+1. La Giunta regionale, con apposita deliberazione, sentita la commissione consiliare competente, in relazione al servizio di taxi e al servizio di noleggio con conducente prestati in esecuzione di contratti stipulati con enti pubblici e privati per far fronte alle relative esigenze, disciplina i casi in cui il prelevamento dell'utente è ammesso anche nell'ambito del territorio di comuni diversi dal comune che ha rilasciato la licenza e l'autorizzazione purché il contratto sia stipulato con i titolari muniti di licenza e di autorizzazione nei comuni ove hanno sede gli enti stessi.
