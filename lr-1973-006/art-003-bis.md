@@ -1,0 +1,3 @@
+Art. 3-bis (4)
+1. Ciascun gruppo consiliare ha inoltre diritto ad un contributo mensile per le spese di aggiornamento studio e documentazione compresa l'acquisizione di collaborazioni nonché per diffondere tra la società civile la conoscenza dell'attività dei gruppi consiliari, anche al fine di promuoverne la partecipazione all'attività dei gruppi stessi e particolarmente all'esame delle questioni ed all'elaborazione di progetti e proposte di leggi e di provvedimenti di competenza del Consiglio regionale. (4a)
+2. Il contributo di cui al comma 1 è quantificato annualmente e assegnato ai gruppi consiliari, nell'ambito degli stanziamenti iscritti in bilancio, con deliberazione dell'Ufficio di presidenza.
