@@ -1,0 +1,6 @@
+Note:
+(1) Legge pubblicata sul Bollettino ufficiale della Regione Lazio del 28 maggio 2009, n. 20, s.o. n. 84
+(1a) Vedi deliberazione della Giunta regionale 22 ottobre 2009, n. 785 (Interventi urgenti in favore delle popolazioni colpite dagli eventi sismici nella regione Abruzzo nel mese di aprile 2009 che ha causato danni anche al patrimonio pubblico e privato nei Comuni di Accumoli, Amatrice, Antrodoco, Borbona, Borgorose, Borgovelino, Castel Sant'Angelo, Cittaducale, Cittareale, Fiamignano, Micigliano, Pescorocchiano, Petrella Salto e Posta della Provincia di Rieti. L.R. 20 Maggio 2009, n. 17 – Art. 10 - "Fondo per il soccorso alle popolazioni colpite dal terremoto dell'aprile 2009". Definizione dei criteri e modalità di gestione)
+(2) Articolo abrogato dall'articolo 26, comma 1, lettera d), della legge regionale 27 luglio 2018, n. 6
+(3) L' allegato relativo alla "Tabella A", stato di previsione dell'entrata (articolo 1), l'allegato relativo alla "Tabella B", stato di previsione della spesa (articolo 2) e le tabelle relative agli aggiornamenti degli elenchi allegati al bilancio di previsione per l'esercizio finanziario 2009 (articolo 3) sono riportati nella sezione "Testo storico" della Banca dati delle leggi regionali
+Il testo non ha valore legale; rimane, dunque, inalterata l'efficacia degli atti legislativi originari.
