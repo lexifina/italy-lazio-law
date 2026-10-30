@@ -1,0 +1,8 @@
+Art. 5 bis (6)
+1. Il difensore civico, nel caso in cui all'istanza prevista dall'articolo 4 sia allegata la risposta dell'amministrazione interessata, interviene con le seguenti modalita':
+a) qualora risulti che il procedimento non e' concluso e che il termine dello stesso, determinato ai sensi dell'articolo 2, secondo e terzo comma, della legge 7 agosto 1990, n. 241, non e' ancora decorso, puo' chiedere notizie sullo stato degli atti;
+b) qualora risulti che il termine del procedimento e' decorso, si rivolge al responsabile del procedimento stesso affinche', senza ulteriore ritardo, lo concluda, chiedendo copia degli atti adottati ed i motivi del ritardo.
+2. Nel caso di mancata risposta all'istanza prevista dall'articolo 4 o d'iniziativa d'ufficio, il difensore civico sollecita l'amministrazione a fornire notizie sullo stato del procedimento e, sulla base delle notizie ricevute, interviene con le modalita' indicate al precedente comma.
+3. Trascorsi trenta giorni dall'ultimo intervento effettuato ai sensi dei precedenti commi, il difensore civico puo' convocare il funzionario responsabile del procedimento allo scopo di procedere all'esame congiunto della pratica.
+4. Il difensore civico da' immediata notizia delle conclusioni raggiunte, unitamente ai propri motivati rilievi ed osservazioni, a coloro che ne hanno promosso l'intervento nonche' agli organi delle amministrazioni interessate, ai quali, se ne ricorrono le condizioni, propone l'apertura di un procedimento disciplinare, secondo i rispettivi ordinamenti, nei confronti del funzionario inadempiente.
+5. Il difensore civico segnala, altresi', all'amministrazione competente le eventuali cause che ostacolino il regolare e tempestivo svolgimento del procedimento coinvolto dal proprio intervento.
