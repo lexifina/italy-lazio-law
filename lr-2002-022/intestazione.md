@@ -1,0 +1,2 @@
+L.R. 22 Luglio 2002, n. 22
+Modifiche alle leggi regionali 22 ottobre 1993, n. 57 "norme generali per lo svolgimento del procedimento amministrativo, l'esercizio del diritto di accesso ai documenti amministrativi e la migliore funzionalita' dell'attivita' amministrativa" e 18 febbraio 2002, n. 6 "Disciplina del sistema organizzativo della giunta e del consiglio e disposizioni relative alla dirigenza ed al personale regionale" (1)
