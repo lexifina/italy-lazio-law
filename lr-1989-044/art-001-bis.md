@@ -1,0 +1,2 @@
+Art. 1 bis
+1. Le agevolazioni creditizie di cui all'articolo 1 sono concesse agli aventi diritto in unica soluzione, mediante l'attuazione del concorso interessi regionali calcolato al tasso di riferimento vigente al momento del perfezionamento della determinazione del dirigente della struttura regionale competente in materia di sviluppo agricolo e mondo rurale che approva la graduatoria delle domande ritenute ammissibili al finanziamento previsto dalla presente legge.(2a)
