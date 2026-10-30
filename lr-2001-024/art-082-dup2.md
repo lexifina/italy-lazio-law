@@ -1,0 +1,4 @@
+Art. 82
+(Sostegno regionale alla promozione della produzione artigianale pontina)
+1. Al fine di contribuire alla promozione della produzione artigianale della provincia pontina, in favore della provincia di Latina sono stanziate la somma di lire 25 milioni per l'attuazione del progetto "Iniziative per la promozione e lo sviluppo dell'artigianato artistico", approvato con deliberazione delle Giunta provinciale di Latina del 27 giugno 2001, n. 136, e la somma di lire 25 milioni per l'attuazione del progetto "Iniziativa promozionale dei prodotti agroalimentari, gastronomici e della produzione artigiana della tradizione della provincia pontina", approvato con deliberazione della Giunta provinciale di Latina del 27 giugno 2001, n. 135.
+2. Le somme di cui al comma 1 gravano sul capitolo numero 22255 denominato "Sostegno regionale alla promozione della produzione artigianale pontina", con lo stanziamento di lire 50 milioni.

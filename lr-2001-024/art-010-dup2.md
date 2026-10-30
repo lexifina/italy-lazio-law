@@ -1,0 +1,3 @@
+Art. 10
+(Contributo finanziario per la completa attuazione delle previsioni di cui alla misura III.1.3 del DOCUP Ob. 5b)
+1. Al fine di dare completa attuazione alle previsioni di cui alla misura III.1.3 del DOCUP Ob. 5b, annualità 1998/99, le maggiori somme dovute alle imprese artigiane quale premio per l'avvenuta trasformazione dei contratti d'apprendistato o di formazione in contratti di lavoro a tempo indeterminato gravano, fino alla concorrenza di lire 500 milioni, sullo stanziamento del capitolo numero 22218 Incentivazione delle assunzioni ed alla formazione delle imprese artigiane (legge regionale 22 aprile 1985, n. 51 e successive modifiche).

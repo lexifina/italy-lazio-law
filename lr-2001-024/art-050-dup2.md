@@ -1,0 +1,9 @@
+Art. 50
+(Disciplina delle modalità dei termini di scadenza per l'ottenimento dei benefici di cui all'articolo 44, comma 2 concernente il fondo regionale per la concessione dei contributi in conto interessi sui mutui concessi dall'I.C.S. – Istituto per il Credito Sportivo - della legge regionale 22 maggio 1997, n. 12)
+1. In deroga all'articolo 93 della legge regionale 7 giugno 1999, n. 6, possono essere presentate, ai sensi della legge regionale 4 luglio 1979, n. 51 e successive modifiche, all'assessorato regionale competente in materia di cultura, spettacolo, sport e turismo, entro sessanta giorni dalla data di entrata in vigore della presente legge, le domande di contributo a valere per l'esercizio finanziario 2001, anno di prima attuazione della convenzione tra la Regione, l'Istituto per il Credito Sportivo ed il CONI avente per oggetto la messa a norma ed abbattimento delle barriere architettoniche, la costruzione, l'acquisizione, il completamento, l'ampliamento ed il miglioramento delle funzionalità di impianti sportivi e per la loro manutenzione straordinaria e l'acquisizione in uso, nonché per l'acquisto di attrezzature di base relative ad impianti o a percorsi e parchi attrezzati per l'attività motoria.
+2. Per gli anni successivi le domande di finanziamento devono pervenire alla Regione entro il termine previsto dall'articolo 93 della l.r. 6/1999.
+3. I mutui possono essere concessi, ai sensi dell'articolo 32 della l.r. 6/1999, ai seguenti soggetti:
+a) ai comuni e loro associazioni e agli altri enti pubblici;
+b) alle federazioni sportive nazionali;
+c) alle società ed associazioni sportive e agli enti di promozione sportiva aventi personalità giuridica e riconosciuta dal CONI;
+d) alle società ed associazioni sportive affiliate agli enti di promozione sportiva aventi personalità giuridica senza fine di lucro.

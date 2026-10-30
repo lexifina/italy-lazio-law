@@ -1,0 +1,5 @@
+Art. 5
+(Incremento dell'autorizzazione di cui all'articolo 4,comma 1, lettera e), della legge regionale
+10 maggio 2001, n. 11)
+1. L'autorizzazione contenuta nell'articolo 4, comma 1, lettera e), della legge regionale 10 maggio 2001, n. 11 è incrementata di un importo di lire 21.651.295.934, mentre è autorizzata la contrazione di un mutuo di lire 901.270.622.934, finalizzato alla copertura del saldo finanziario negativo connesso alla gestione dei pregressi esercizi.
+2. Attesa la disposizione contenuta nell'ultimo comma dell'articolo 36 della legge regionale 12 aprile 1977, n. 15, è fatta salva la facoltà, con la legge regionale di approvazione del bilancio di previsione 2002 o con il relativo assestamento, di rinnovare l'autorizzazione alla contrazione di uno o più mutui per il finanziamento delle somme inutilizzate iscritte nell'elenco n. 5 allegato alla l.r. 11/2001 e dell'elenco 5bis di cui alla medesima legge come modificato dalla presente legge, nonché di quelle autorizzate dal presente articolo.

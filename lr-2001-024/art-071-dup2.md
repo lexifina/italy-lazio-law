@@ -1,0 +1,3 @@
+Art. 71
+(Finanziamenti per le iniziative della società consortile "Ecetra")
+1. Nell'ambito del piano d'area di cui all'articolo 14 della legge regionale 3 giugno 1992, n. 36, i finanziamenti, a valere sul fondo speciale e nell'ambito della convenzione vigente tra la Regione e l'Agenzia Regionale per lo Sviluppo, riguardano anche iniziative da realizzare o già poste in essere nell'anno 2000 e 2001 da parte della società consortile "Ecetra" costituita dai Comuni di Artena, Carpineto Romano, Gavignano, Gorga, Montelanico e Segni per la gestione della misura N. 5 del piano d'area, sulla base del programma presentato dalla società consortile da sottoporre all'approvazione della Giunta regionale.

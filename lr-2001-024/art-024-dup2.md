@@ -1,0 +1,4 @@
+Art. 24
+(Modifiche alla legge regionale 2 maggio 1995, n. 19 e successive
+modifiche concernente il rimborso spese per i consiglieri regionali)
+omissis (2)

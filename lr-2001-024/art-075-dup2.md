@@ -1,0 +1,5 @@
+Art. 75
+(Variazione alla denominazione del capitolo numero 41177
+concernente indennizzo ai sensi della legge 25 febbraio
+1992, n. 210 e successive modifiche)
+1. Al fine di consentire l'erogazione di una somma "una tantum" ai soggetti beneficiari degli indennizzi previsti dalla legge 25 febbraio 1992, n. 210 (Indennizzo a favore dei soggetti danneggiati da complicanze di tipo irreversibile a causa di vaccinazioni obbligatorie, trasfusioni e somministrazione di emoderivati) che hanno presentato domanda in ritardo rispetto ai termini previsti dalla legge medesima, il capitolo numero 41177 "Fondo per legge numero 210/92 (Indennizzo a favore di soggetti danneggiati da complicanze di tipo irreversibile a causa di vaccinazioni obbligatorie, trasfusioni e somministrazioni di emoderivati" istituito con l'articolo 247 della legge regionale 10 maggio 2001, n. 10 assume la seguente denominazione: "Fondo da distribuire "una tantum" a coloro i quali hanno presentato fuori termine la richiesta di indennizzo ai sensi della legge n. 210/92".
