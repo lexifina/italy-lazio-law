@@ -1,0 +1,6 @@
+Art. 9-bis (7)
+(Rischi derivanti dall'espletamento di compiti istituzionali)
+1. La Regione Lazio provvede alla copertura assicurativa per i consiglieri in carica per i rischi derivanti dall'espletamento dei compiti istituzionali connessi con la carica ricoperta riguardanti la responsabilità patrimoniale, amministrativa, giudiziaria ed il relativo patrocinio legale comprese la responsabilità per danni cagionati allo Stato, alla Pubblica amministrazione, alla Regione e la responsabilità contabile.
+2. La copertura dei rischi e delle responsabilità deve essere attuata in modo da operare anche per le contestazioni, gli addebiti e le richieste avanzate nei confronti dei consiglieri e degli Assessori dopo la loro cessazione dalla carica sempre per i fatti riferiti al periodo della loro carica.
+3. Gli oneri relativi all'assicurazione di cui al comma 1 sono a carico del bilancio del Consiglio regionale; i consiglieri regionali concorrono alla spesa nella misura del 50% del premio riferibile ai rischi di cui al comma 1.
+4. Gli oneri connessi alla copertura assicurativa di cui ai precedenti commi, prevista in lire 100 milioni per l'anno 1998, rientrano nell'ambito del bilancio del Consiglio regionale.
