@@ -1,0 +1,4 @@
+ARTICOLO UNICO
+Nel secondo comma dell'art. 2 della legge regionale 29 maggio 1978, n. 21, le parole: "e le determinazioni del sindaco sulle domande medesime debbono essere assentite" debbono intendersi sostituite dalle seguenti: "e le determinazioni del sindaco sulle domande medesime debbono essere assunte".
+Nel terzo comma dell'art. 2 della legge regionale 29 maggio 1978, n. 21, le parole: "e altrimenti entro tre anni" debbono intendersi sostituite dalle seguenti: "e ultimati entro tre anni".
+Le correzioni di cui al presente articolo sono apportate al fine di correggere errori materiali del testo legislativo e non comportano in alcun modo riapertura dei termini, i quali restano quelli stabiliti nella legge (regionale; n. d.r.) 29 maggio 1978, n. 21 e sono riferiti all'entrata in vigore della medesima.
