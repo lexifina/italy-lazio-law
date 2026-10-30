@@ -1,0 +1,2 @@
+L.R. 15 Ottobre 1991, n. 64
+Modifiche ed integrazioni alle disposizioni procedurali e finan- ziarie di cui alle leggi regionali 3 luglio 1986, n. 23 e 24, nonchŠ alla legge regionale 20 luglio 1988, n. 40, concernenti rispettivamente "Fondo regionale per l'assistenza tecnica e finanziaria a piccole e medie imprese operanti nel Lazio", "Fondo regionale speciale per la garanzia dei fidi a medio termine" e "Fondo regionale speciale per il riuso dei fabbricati industriali in disuso per favorire l'occupazione e per lo sviluppo delle piccole e medie imprese". (1) (2)
