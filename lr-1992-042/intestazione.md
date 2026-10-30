@@ -1,0 +1,2 @@
+L.R. 3 Novembre 1992, n. 42 (1)
+Norme integrative e modificative degli articoli 10, comma c) e 13, comma a) della legge regionale 16 marzo 1973, n. 7, concernente: "Determinazione delle indennità, rimborsi spese e norme sulla previdenza dei consiglieri della Regione Lazio"; e abrogazione leggi regionali 2 novembre 1984, n. 69; 18 aprile 1985, n. 47; articolo 2 legge regionale 13 maggio 1985, n. 70; 24 giugno 1991, n. 23; 15 ottobre 1991, n. 62.
