@@ -1,0 +1,2 @@
+L.R. 16 Marzo 1982, n. 14
+Modifiche ed integrazioni alla legge regionale 6 luglio 1977, n. 24, sulla disciplina urbanistico - edilizia nei comuni sprovvisti di piano regolatore generale o di programma di fabbricazione approvati, per la ricostruzione dei fabbricati relativi al risarcimento danni di guerra di cui alla legge 25 giugno 1949, n. 409 e successive, prorogate da ultimo con la legge 28 ottobre 1981, n. 611.(1)
