@@ -1,0 +1,6 @@
+L.R. 16 Febbraio 1981, n. 12
+Norme in materia di edilizia scolastica (1).
+TITOLO I
+OPERE INCLUSE NEI PROGRAMMI REGIONALI
+Capo I
+PROGRAMMAZIONE DEGLI INTERVENTI
