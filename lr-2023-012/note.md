@@ -1,0 +1,2 @@
+Note:
+(1) Vedi la deliberazione della Giunta regionale 8 febbraio 2024, n. 63 (Legge regionale 10 ottobre 2023, n.12.Disciplina delle modalità di attuazione delle disposizioni volte a favorire la circolazione dei crediti fiscali derivanti dagli interventi di cui all'articolo 119 del decreto legge 19 maggio 2020 n.34 (Misure urgenti in materia di salute, sostegno al lavoro e all'economia, nonché di politiche sociali connesse all'emergenza epidemiologica da covid 19) convertito, con modificazioni, dalla legge 17 luglio 2020, n.77.
