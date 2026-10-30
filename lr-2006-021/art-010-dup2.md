@@ -1,0 +1,5 @@
+Art. 10
+(Tipologia di esercizi)
+1. Lo svolgimento delle attività di somministrazione di alimenti e bevande, comprese quelle alcoliche di qualsiasi gradazione, rientra nell'unica tipologia di esercizio di somministrazione, come definita dall'articolo 3, comma 1, lettera c).
+2. Gli esercizi di cui al presente articolo, aperti al pubblico, hanno facoltà di vendita per asporto degli alimenti e bevande somministrati, ivi compresi i generi di pasticceria, gelateria, i pastigliaggi e ogni altro prodotto alimentare preconfezionato all'origine. (5)
+3. Le attività di somministrazione di alimenti e bevande devono essere svolte nel rispetto delle norme vigenti, delle prescrizioni e delle autorizzazioni in materia edilizia, urbanistica, igienico-sanitaria e di inquinamento acustico, di destinazione d'uso dei locali e degli edifici, di sicurezza e di prevenzione degli incendi e, qualora trattasi di somministrazione al pubblico, di sorvegliabilità, nonché delle vigenti norme contrattuali di primo e secondo livello relative al personale dipendente impiegato.
