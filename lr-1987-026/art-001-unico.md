@@ -1,0 +1,2 @@
+ARTICOLO UNICO
+All' articolo 1 della legge regionale approvata nella seduta del 22 dicembre 1986 (2), concernente: << Norme di applicazione del decreto del Presidente della Repubblica 20 dicembre 1979, n. 761 e del decreto del Presidente della Repubblica 7 settembre 1984, n. 821, per il personale dei profili professionali dei biologi, chimici, fisici, psicologi e farmacisti >>, le parole << gli ingegneri che svolgono unicamente attivita' di assistenza alle medesime tecnologie >>, sono soppresse.
