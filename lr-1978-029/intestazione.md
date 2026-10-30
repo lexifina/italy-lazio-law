@@ -1,0 +1,1 @@
+Norme per l'esercizio delle funzioni trasferite dal decreto del Presidente della Repubblica 15 gennaio 1972, n. 9, in materia di nomine dei consigli di amministrazione delle istituzioni pubbliche di assistenza e beneficenza (1)
