@@ -1,0 +1,2 @@
+L.R. 18 Settembre 1979, n. 72
+Modificazioni alle LR 26-8-1978 N.48 concernente: " Modificazione dei settori e del numero degli uffici costituenti le strutture regionali" , 5-2-1979 n.11 concernente: " ordinamento delle strutture regionali organico e profili professionali modifiche alla LR 29-5-1973 n. 20 ",e 5-2-1979 n.12 concernente: " Determinazione delle competenze e delle funzioni dei settori operativi dell'amministrazione regionale centrale e decentrata del consiglio regionale e degli organi di controllo ".(1)
