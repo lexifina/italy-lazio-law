@@ -1,0 +1,15 @@
+SOMMARIO
+Art. 1 (Riconoscimento dei debiti fuori bilancio della Regione Lazio derivanti da sentenze esecutive)
+Art. 2 (Copertura finanziaria)
+Art. 3 (Variazioni al bilancio di previsione della Regione Lazio 2024-2026)
+Art. 4 (Modifica all'articolo 4 della legge regionale 25 marzo 2024, n. 4, relativo a disposizioni in materia di addizionale regionale all'Imposta sul reddito delle persone fisiche e di Imposta regionale sulle attività produttive)
+Art. 5 (Contributo una tantum alle strutture private accreditate a ristoro dei costi fissi sostenuti a seguito di eventuali sospensioni di attività ordinarie disposte nell'anno 2021 in funzione dell'andamento dell'emergenza da COVID-19)
+Art. 6 (Disposizioni relative alla distribuzione in nome e per conto del servizio sanitario regionale – DPC) [abrogato]
+Art. 7 (Modifiche alla legge regionale 30 novembre 2021, n. 17 "Istituzione dell'Azienda regionale sanitaria Lazio.0" e successive modifiche)
+Art. 8 (Disposizioni relative alla continuità assistenziale delle persone con disturbo dello spettro autistico e disabilità complessa di cui alla deliberazione della Giunta regionale 28 dicembre 2023, n. 983)
+Art. 9 (Disposizioni finanziarie relative agli interventi di cui al Fondo per lo sviluppo e la coesione (FSC) 2021-2027, al Piano nazionale di ripresa e resilienza e al Piano nazionale complementare al PNRR e alla programmazione regionale unitaria)
+Art. 10 (Disposizioni in materia di finanziamento delle opere e dei lavori pubblici a valere sull'anticipazione delle risorse del Fondo per lo sviluppo e la coesione (FSC) 2021-2027)
+Art. 11 (Disposizioni in materia di risarcimento dei danni subiti dalle imprese e dalle attività commerciali a seguito degli eventi atmosferici verificatisi dal 13 al 15 ottobre 2015)
+Art. 12 (Modifiche alla legge regionale 13 giugno 2001, n. 13 "Riconoscimento della funzione sociale ed educativa degli oratori" e successive modifiche)
+Art. 13 (Modifiche all'articolo 39 della legge regionale 15 settembre 2005, n. 16, relativo al trattamento economico dei dirigenti, all'articolo 10 della legge regionale 25 marzo 2024, n. 4 "Variazioni al bilancio di previsione finanziario della Regione Lazio 2024-2026. Disposizioni varie", alla legge regionale 28 giugno 2013, n. 4 "Disposizioni urgenti di adeguamento all'articolo 2 del decreto-legge 10 ottobre 2012, n. 174, convertito, con modificazioni, dalla legge 7 dicembre 2012, n. 213, relativo alla riduzione dei costi della politica, nonché misure in materia di razionalizzazione, controlli e trasparenza dell'organizzazione degli uffici e dei servizi della Regione" e successive modifiche)
+Art. 14 (Entrata in vigore)
