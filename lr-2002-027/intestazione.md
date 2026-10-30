@@ -1,0 +1,16 @@
+L.R. 30 Luglio 2002, n. 27
+Modifiche alla legge regionale 18 febbraio 2002, n. 6 "Disciplina del sistema organizzativo della giunta e del consiglio e disposizioni relative alla dirigenza ed al personale regionale" e successive modifiche." (1)
+Sommario:
+Art. 1 (Inserimento dell'articolo 7 bis alla legge regionale 18 febbraio 2002, n. 6)
+Art. 2 (Modifiche all'articolo 12 della l. r. 6/2002)
+Art. 3 (Modifiche all'articolo 16 della l. r. 6/2002)
+Art. 4 (Modifiche all'articolo 18 della l. r. 6/2002)
+Art. 5 (Modifiche all'articolo 19 della l.r. 6/2002)
+Art. 6 (Modifiche all'articolo 20 della l.r. 6/2002)
+Art. 7 (Modifiche all'articolo 24 della l. r. 6/2002)
+Art. 8 (Modifiche all'articolo 33 della l.r. 6/2002)
+Art. 9 (Modifiche all'articolo 34 della l.r. 6/2002)
+Art. 10 (Modifiche all'articolo 35 della l. r. 6/2002)
+Art. 11 (Modifiche all'articolo 38 della l. r. 6/2002)
+Art. 12 (Modifiche all'articolo 41 della l. r. 6/2002)
+Art. 13 (Modifiche all'articolo 42 della l. r. 6/2002)
