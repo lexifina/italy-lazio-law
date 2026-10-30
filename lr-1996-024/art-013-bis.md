@@ -1,0 +1,17 @@
+Art. 13 bis
+(Consulta regionale sulla cooperazione sociale) (10)
+1. È istituita, senza oneri sul bilancio regionale, la Consulta regionale sulla cooperazione sociale con la finalità di favorire il raccordo fra le politiche regionali e il ruolo svolto dalla cooperazione sociale in materia socio-sanitaria, educativa, di formazione professionale e di integrazione e inserimento lavorativo delle persone in condizioni di svantaggio.
+2. La Consulta è composta da:
+a) l'Assessore regionale alle politiche sociali;
+b) sei rappresentanti, effettivi e loro supplenti, delle associazioni regionali maggiormente rappresentative della cooperazione sociale aderenti alle associazioni nazionali di rappresentanza e tutela del movimento cooperativo; (10a)
+c) un dirigente regionale individuato dal direttore della direzione regionale competente in materia di cooperative sociali;
+d) un rappresentante dell'ANCI (Associazione nazionale comuni italiani) regionale.
+3. In relazione agli argomenti trattati possono essere chiamati a partecipare ai lavori della Consulta gli assessori regionali competenti nelle specifiche materie, ulteriori esperti nelle tematiche trattate, rappresentanti delle cooperative sociali operanti nel territorio regionale, rappresentanti delle autonomie ed enti locali o altri organismi.
+4. La Consulta svolge i seguenti compiti:
+a) esprime pareri agli assessorati competenti e formula proposte in materia di cooperazione sociale, con particolare riguardo al perseguimento di obiettivi di promozione delle cooperative sociali e agli interventi per realizzarli; (10b)
+b) segue l'andamento e lo sviluppo delle cooperative sociali nel territorio della Regione Lazio;
+c) verifica lo stato dei rapporti fra le cooperative sociali e le pubbliche amministrazioni per l'insieme delle questioni che attengono al settore e propone l'attuazione delle linee guida regionali per gli affidamenti dei beni e servizi alle cooperative sociali, promuovendo la valorizzazione degli strumenti della coprogrammazione, coprogettazione e accreditamento;
+d) esegue il monitoraggio relativamente alle attività delle cooperative sociali con riferimento al mercato del lavoro, alla formazione professionale e agli andamenti occupazionali;
+e) svolge rilievi e analisi circa gli standard qualitativi e l'efficienza degli interventi realizzati, monitorando l'attività delle cooperative sociali, con particolare riguardo alla valutazione dell'impatto sociale dei servizi erogati e dei percorsi di inserimento lavorativo attivati in accordo con le "Linee Guida Regionali per la misurazione dell'impatto sociale", approvate con la deliberazione della Giunta regionale 19 febbraio 2019, n. 81;
+f) individua specifici strumenti, modalità e risorse, anche sperimentali e in settori che non coinvolgono le cooperative sociali, adatti al raggiungimento degli obiettivi programmati e che, in particolare, possano rappresentare ulteriore occasione di sviluppo e implementazione di percorsi di inserimento lavorativo di persone in condizioni di svantaggio, favorendo anche la diffusione degli strumenti già previsti dalle normative vigenti come, a titolo esemplificativo e non esaustivo, quelli di cui all'articolo 12 della legge 12 marzo 1999, n. 68 (Norme per il diritto al lavoro dei disabili) e successive modifiche;
+g) sensibilizza le istituzioni e le imprese pubbliche e private ad avviare iniziative per favorire l'inserimento lavorativo delle persone in condizioni di svantaggio.

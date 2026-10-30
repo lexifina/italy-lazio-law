@@ -1,0 +1,6 @@
+Art. 14 bis
+(Procedura)
+1.La Giunta regionale fissa, con propria deliberazione, le modalità, i criteri ed i parametri per l'assegnazione dei punteggi da attribuire ad ogni singola cooperativa e/o loro consorzi per la quantificazione dei contributi da erogare. La Giunta regionale acquisisce sulla proposta il parere della commissione consiliare competente.
+2. Il contributo è revocato se le cooperative e/o i loro consorzi non iniziano le attività previste dal progetto entro tre mesi dalla data della notifica della concessione del contributo e non le concludono entro dodici mesi dalla data di inizio. Il contributo è altresì, revocato nel caso in cui lo stesso non sia utilizzato secondo quanto previsto nel progetto.
+3.Le somme revocate possono essere utilizzate, entro l'esercizio finanziario, per la concessione del contributo di progetti ritenuti ammissibili ma non finanziati per carenza di fondi.
+4.Il provvedimento di rendicontazione, approvato dal competente organo della cooperativa e/o del consorzio, deve pervenire al servizio II dell'area 9/C del dipartimento scuola, formazione e politiche del lavoro entro tre mesi dalla conclusione del progetto, unitamente ad una relazione sui risultati conseguiti. (12)
