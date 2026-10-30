@@ -1,0 +1,6 @@
+Art. 57 bis (143)
+(Clausola di valutazione degli effetti finanziari)
+1. Ai sensi dell'articolo 42 della legge regionale 12 agosto 2020, n. 11 (Legge di contabilità regionale), la Giunta regionale, sulla base del monitoraggio effettuato dalle direzioni regionali competenti per materia, in raccordo con la direzione regionale competente in materia di bilancio, presenta alla commissione consiliare competente in materia di bilancio, con cadenza annuale, una relazione che illustri:
+a) gli obiettivi programmati e le variabili socioeconomiche di riferimento in relazione agli strumenti ed alle misure previste per l'attuazione degli interventi;
+b) l'ammontare delle risorse finanziarie impiegate e di quelle eventualmente disponibili per la concessione dei contributi previsti;
+c) la tipologia e il numero dei beneficiari in riferimento ai contributi concessi.
