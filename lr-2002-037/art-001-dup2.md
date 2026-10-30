@@ -1,0 +1,4 @@
+Art. 1 (5)
+(Promozione della costituzione di una società per azioni a partecipazione regionale)
+1. La Regione promuove la costituzione, in conformità alle disposizioni dello Statuto regionale ed ai sensi degli articoli 2325 e seguenti del codice civile, di una società per azioni a prevalente capitale regionale, di seguito denominata "società", avente ad oggetto la progettazione, l'esecuzione e la manutenzione di reti autostradali e di infrastrutture di viabilità a pedaggio nonché la gestione a tariffa ovvero a pedaggio delle stesse.
+2. La società opera nel rispetto di quanto stabilito dall'articolo 13 del decreto legge 4 luglio 2006, n. 223 (Disposizioni urgenti per il rilancio economico e sociale, per il contenimento e la razionalizzazione della spesa pubblica, nonché interventi in materia di entrate e di contrasto all'evasione fiscale) convertito, con modificazioni, dalla legge 4 agosto 2006, n. 248.io della stessa.
