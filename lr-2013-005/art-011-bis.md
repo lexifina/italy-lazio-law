@@ -1,0 +1,7 @@
+Art. 11 bis (8)
+(Disposizioni transitorie)
+1. Agli esercizi pubblici e commerciali nonché alle sale da gioco già esistenti alla data di entrata in vigore della presente disposizione non si applicano le disposizioni di cui all'articolo 4, comma 1, lettera a), e si applicano esclusivamente le limitazioni di cui all'articolo 4, comma 1, lettera b).
+2. Gli esercenti che, alla data di entrata in vigore della presente disposizione, gestiscono apparecchi per il gioco d'azzardo collocati all'interno di esercizi pubblici commerciali o di sale da gioco ovvero i titolari di concessioni si adeguano, entro centocinquanta giorni successivi a tale data, a quanto previsto dall'articolo 4, comma 1, lettera b).
+3. Nelle more dell'individuazione da parte dei comuni delle fasce orarie di cui all'articolo 4, comma 1, lettera b), numero 6), si applicano le seguenti fasce orarie di interruzione dell'attività degli apparecchi indicati all'articolo 110, comma 6, lettere a) e b), del r.d. 773/1931:
+a) per dodici ore giornaliere complessive, di cui dieci ore consecutive nella fascia notturna e di ingresso scolastico, dalle ore 23:00 alle ore 09:00, e due ore nella fascia diurna di uscita dalle scuole, dalle 12:30 alle 14:30, per gli esercizi aventi attività esclusiva o prevalente differente dal gioco regolamentato e nei quali non è vietato l'accesso ai minori;
+b) per otto ore giornaliere complessive e consecutive, dalle ore 02:00 alle ore 10:00, per gli esercizi aventi il gioco regolamentato quale attività esclusiva o prevalente e nei quali è vietato l'accesso ai minori.
