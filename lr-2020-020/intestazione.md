@@ -1,0 +1,12 @@
+SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Definizioni)
+Art. 3 (Campagne di informazione. Fiera annuale della birra artigianale)
+Art. 4 (Formazione, aggiornamento professionale e qualificazione degli operatori)
+Art. 5 (Promozione della coltivazione e della lavorazione delle materie prime per la produzione della birra artigianale)
+Art. 6 (Interventi per la promozione e la valorizzazione del settore della birra artigianale)
+Art. 7 (Marchio regionale)
+Art. 8 (Rispetto della normativa dell'Unione europea sugli aiuti di Stato)
+Art. 9 (Clausola di valutazione degli effetti finanziari)
+Art. 10 (Disposizioni finanziarie)
+Art. 11 (Entrata in vigore)
