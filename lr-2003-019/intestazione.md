@@ -1,0 +1,15 @@
+L.R. 21 Luglio 2003, n. 19
+Norme per il diritto al lavoro delle persone disabili. Modifiche all'articolo 28 della legge regionale 7 agosto 1998, n. 38 (Organizzazione delle funzioni regionali e locali in materia di politiche attive per il lavoro). Abrogazione dell'articolo 229 della legge regionale 10 maggio 2001, n. 10 (Disposizioni finanziarie per la redazine del bilancio della Regione Lazio per l'eserrcizio finanziario 2001) (1)
+S O M M A R I O
+ART. 1 (Finalità)
+ART. 2 (Ambito di applicazione)
+ART. 3 (Interventi)
+ART. 4 (Programma operativo per il diritto al lavoro delle persone disabili)
+ART. 5 (Fondo regionale per l'occupazione dei disabili)
+ART. 6 (Comitato regionale per il diritto al lavoro delle persone disabili)
+ART. 7 (Servizio provinciale di collocamento obbligatorio)
+ART. 8 (Servizio di accertamento e controllo della disabilità)
+ART. 9 (Modifiche all'articolo 28 della legge regionale 7 agosto 1998, n. 38)
+ART. 10 (Disposizioni finanziarie)
+ART. 11 (Disposizione transitoria)
+ART. 12 (Abrogazione)

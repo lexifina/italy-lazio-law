@@ -1,0 +1,4 @@
+Art. 7 ter (6)
+(Albo regionale)
+1. Per la costituzione del servizio inserimento lavorativo disabili, i servizi provinciali di collocamento obbligatorio possono avvalersi della collaborazione, anche in regime di convenzione, di soggetti competenti e di provata esperienza nell'attività di inserimento mirato.
+2. Presso l'assessorato competente in materia di lavoro, è istituito l'albo regionale delle strutture competenti nel settore dell'inserimento lavorativo delle persone disabili che operino nell'ambito del territorio regionale da almeno cinque anni.
