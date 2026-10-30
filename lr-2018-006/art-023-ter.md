@@ -1,0 +1,8 @@
+Art. 23 ter
+(Composizione)
+1. L'Osservatorio, presieduto dal direttore competente in materia di diritto allo studio universitario o suo delegato, è composto da dirigenti e funzionari delle direzioni regionali, esperti nei settori relativi agli interventi, ai servizi e alle prestazioni di cui all'articolo 5, rappresentanti delle università e degli istituti che erogano i corsi di cui all'articolo 3 nonché il rappresentante degli studenti del consiglio di amministrazione di cui all'articolo 8, comma 2, lettera a), il rappresentante delle istituzioni di alta formazione artistica, musicale e coreutica componente della Consulta e altro componente della stessa, eletto nella medesima in singola votazione.
+2. I componenti dell'Osservatorio partecipano a titolo gratuito.
+3. Alle sedute dell'Osservatorio possono partecipare, anche su richiesta, l'Assessore competente in materia di diritto allo studio universitario o suo delegato, il Presidente della commissione consiliare competente in materia di diritto allo studio universitario o suo delegato, i consiglieri componenti della suddetta commissione, il direttore generale dell'Ente o suo delegato, nonché gli ulteriori soggetti individuati dalla deliberazione di cui al comma 4. Le funzioni di segretario verbalizzante sono svolte da un funzionario della direzione competente in materia di diritto allo studio universitario.
+4. La Giunta regionale, sentita la commissione consiliare competente in materia di diritto allo studio universitario, con deliberazione, stabilisce modalità e criteri per l'individuazione dei componenti dell'Osservatorio nonché per l'organizzazione e il funzionamento dello stesso.
+Capo IV
+Clausola valutativa. Disposizioni transitorie e finanziarie
