@@ -1,0 +1,11 @@
+{
+  "path": "it-62",
+  "code": "IT-62",
+  "name": "Lazio",
+  "level": "region",
+  "parent": "it",
+  "repo": "https://github.com/lexifina/italy-lazio-law",
+  "build": "built: statute and regional laws (1908 acts, 1908 versions) from the Consiglio regionale del Lazio (current text only)",
+  "language": "it",
+  "sources": 1
+}

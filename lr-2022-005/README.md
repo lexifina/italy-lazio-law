@@ -1,0 +1,9 @@
+# Legge regionale 21 marzo 2022, n. 5 - Variazioni al bilancio di previsione finanziario 2022-2024 per l'adeguamento alle risultanze del rendiconto generale per l'esercizio finanziario 2020, ai sensi degli articoli 42, comma 12, e 50, comma 3 bis, del decreto legislativo 23 giugno 2011, n. 118 (Disposizioni in materia di armonizzazione dei sistemi contabili e degli schemi di bilancio delle regioni, degli enti locali e dei loro organismi, a norma degli articoli 1 e 2 della legge 5 maggio 2009, n. 42) e successive modifiche
+
+l.r. 5/2022 · 1 versions, from 2026-10-30 (latest in force: 2026-10-30) · <https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=9437&sv=vigente>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Articolo 1 | [art-001.md](art-001.md) | 0 |  |
+| Articolo 2 | [art-002.md](art-002.md) | 0 |  |
+| Articolo 3 | [art-003.md](art-003.md) | 0 |  |
