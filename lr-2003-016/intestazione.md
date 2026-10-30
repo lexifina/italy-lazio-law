@@ -1,0 +1,2 @@
+L.R. 16 Giugno 2003, n. 16
+Modifiche alla legge regionale 16 luglio 1998, n. 30, recante disposizioni in materia di trasporto pubblico locale e successive modifiche, alla legge regionale 3 dicembre 1982, n. 52, recante disposizioni sulle tariffe dei pubblici servizi di trasporto, alla legge regionale 12 gennaio 1991, n. 1, recante disposizioni su sistemi tariffari e alla legge regionale 26 ottobre 1993, n. 58, recante disposizioni sull'esercizio di trasporto pubblico non di linea (1)
