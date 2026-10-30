@@ -1,0 +1,3 @@
+Art. 5 bis (5)
+(Disposizione finanziaria)
+1. Agli oneri derivanti dalla presente legge si provvede mediante l'istituzione, nel programma 01 "Urbanistica e assetto del territorio" della missione 08 "Assetto del territorio ed edilizia abitativa", titolo 1 "Spese correnti", del "Fondo per l'esercizio delle funzioni e dei compiti amministrativi in materia di paesaggio", la cui autorizzazione di spesa, pari ad euro 250.000,00 a decorrere dall'anno 2020, è derivante dalla corrispondente riduzione delle risorse iscritte nel bilancio regionale 2020-2022 nel fondo speciale di cui al programma 03 "Altri fondi" della missione 20 "Fondi e accantonamenti", titolo 1.
