@@ -1,0 +1,6 @@
+ARTICOLO UNICO
+La Regione, per l' esame della documentazione contabile dei rendiconti di spesa relativi ai corsi di formazione professionale gestiti da enti terzi e finanziati dalla Regione stessa, ai sensi delle leggi regionali n. 4 del 30 gennaio 1973 e n. 14 del 6 aprile 1978, puo' avvalersi mediante contratto, ai sensi del penultimo comma dell' art. 49 del proprio statuto, approvato con legge da scegliersi tra gli iscritti all' albo dei revisori dei conti o dei commercialisti.
+Restano ferme le competenze delle strutture regionali previste dal secondo comma dell' art. 26 della legge regionale n. 15 del 12 aprile 1977.
+Per l' attuazione della presente legge e' autorizzata la spesa complessiva di lire 350 milioni di cui lire 50 milioni per l' anno 1983, lire 200 milioni per l' anno 1984 e lire 100 milioni per l' anno 1985.
+Per l' anno 1983 la spesa di lire 50 milioni fa carico al capitolo n. 25107 del bilancio di previsione per l' esercizio finanziario 1983, il cui stanziamento viene integrato mediante prelevamento di pari importo dal capitolo n. 29001 del bilancio di previsione per il medesimo anno.
+Per gli anni 1984 e 1985, alla copertura dell' onere finanziario si provvedera' con legge di approvazione del bilancio di previsione per i rispettivi esercizi finanziari.
