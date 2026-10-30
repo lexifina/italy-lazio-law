@@ -1,0 +1,12 @@
+SOMMARIO
+Art. 1 (Finalità e oggetto)
+Art. 2 (Definizione e ambito di applicazione)
+Art. 3 (Scambio mutualistico e categorie di soci)
+Art. 4 (Contributi e incentivi in favore delle cooperative di comunità)
+Art. 5 (Utilizzo delle aree e dei beni immobili inutilizzati)
+Art. 6 (Albo regionale)
+Art. 7 (Deliberazione di attuazione)
+Art. 8 (Strumenti e modalità di raccordo)
+Art. 9 (Relazione. Clausola di valutazione degli effetti finanziari)
+Art. 10 (Disposizioni finanziarie)
+Art. 11 (Entrata in vigore)
