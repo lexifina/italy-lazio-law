@@ -1,0 +1,4 @@
+Art. 23bis (17)
+(Tetto al trattamento economico dei dipendenti degli enti pubblici economici - Aziende territoriali per l'edilizia residenziale pubblica "ATER")
+1. Al fine del contenimento e della razionalizzazione della spesa pubblica regionale, in analogia a quanto già previsto dagli articoli 20 e 23, il trattamento economico annuo onnicomprensivo spettante ai dirigenti e al personale dipendente delle Aziende territoriali per l'edilizia residenziale pubblica (ATER) di cui alla legge regionale 3 settembre 2002, n. 30 (Ordinamento degli enti regionali operanti in materia di edilizia residenziale pubblica) e successive modifiche non deve superare il trattamento economico di cui all'articolo 20, comma 1 bis. (15b)
+2. Il mancato rispetto delle disposizioni di cui al presente articolo costituisce motivo di revoca degli organi di governo delle ATER.
