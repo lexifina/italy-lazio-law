@@ -1,0 +1,4 @@
+Art. 18 bis (46)
+(Sedi di rappresentanza diplomatica e consolare)
+1.Qualora nell'ambito di aree soggette a disciplina di tutela integrale o ad essa assimilata, previste dai PTP, ivi compresi quelli approvati con deliberazione del Consiglio regionale antecedente alla data di entrata in vigore della presente legge, o dal PTPR, ricadono sedi di rappresentanza diplomatica e consolare in ordine alle quali siano in essere o vengano definiti accordi bilaterali in regime di reciprocità tra lo Stato italiano ed altri Stati, è consentita, in deroga alla citata disciplina di tutela, la costruzione di edifici autonomi da destinare ad attività di culto per il soddisfacimento delle esigenze della comunità .
+2. Nei casi previsti dal comma 1 i progetti delle opere sono corredati del SIP di cui agli articoli 29 e 30.

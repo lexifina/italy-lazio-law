@@ -1,0 +1,7 @@
+Art. 31ter (76)
+(Parchi archeologici e culturali)
+1. La Regione, nel rispetto della normativa statale in materia di beni culturali e paesaggistici e d'intesa con le amministrazioni pubbliche interessate, può individuare, all'interno delle aree sottoposte a vincolo paesistico e, in particolare, in quelle di interesse archeologico, zone da destinare nella loro globalità alla fruizione collettiva come parchi archeologici e culturali, al fine di promuovere, valorizzare e consolidare le identità della comunità locale e dei luoghi.
+2. I parchi archeologici e culturali possono riguardare sia i beni architettonici, monumentali, paesaggistici e naturali, sia aspetti della letteratura e della tradizione religiosa e popolare e possono comprendere anche zone esterne alle aree con vincolo paesistico.
+3. I parchi archeologici e culturali sono istituiti mediante apposite convenzioni tra Regione ed amministrazioni pubbliche interessate, ivi comprese le soprintendenze competenti, ed eventuali associazioni ed organizzazioni culturali.
+4. La convenzione di cui al comma 3 definisce, in conformità alla normativa statale vigente in materia di beni culturali e paesaggistici , la disciplina d'uso del parco archeologico e culturale, con particolare riguardo agli aspetti di fruizione, promozione e valorizzazione. La convenzione individua altresì gli interventi prioritari da realizzare ed eventuali misure incentivanti o finanziamenti pubblici e privati.
+5. (76a)
