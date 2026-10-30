@@ -1,0 +1,6 @@
+Art. 2 bis (19a)
+(Attuazione degli strumenti di pianificazione urbanistica. Utilizzazione delle aree a standard e servizi)
+1. Il comune può valutare, nell'ambito delle aree di standard ricomprese all'interno dei piani convenzionati, nonché di aree destinate a verde pubblico, sportivo e sociale previste dagli strumenti urbanistici, la possibilità della loro realizzazione e gestione anche da parte di soggetti privati ovvero da parte dei proprietari delle aree.
+2. I comuni stipulano convenzioni con i soggetti di cui al comma 1, con le quali viene concesso l'utilizzo in diritto di superficie, in forma esclusiva, delle citate aree; tali soggetti possono realizzare attività, progetti ed iniziative anche attraverso l'utilizzo di risorse economiche private.
+3. Con la convenzione si stabilisce la quota parte dei profitti derivati anche da attività gestionali da investire per il mantenimento, la valorizzazione dei servizi sopra indicati, nonché ulteriori interventi volti alla riqualificazione, realizzazione di marciapiedi, strade, arredo urbano e realizzazione di parchi pubblici e simili, nello stesso ambito, assicurando al contempo un ritorno economico per l'amministrazione comunale.
+4. La Giunta comunale autorizza la stipula della convenzione.

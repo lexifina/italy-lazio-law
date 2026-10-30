@@ -1,0 +1,4 @@
+Art. 1 quater (18b)
+(Permesso di costruire in deroga agli strumenti urbanistici)
+1. Per favorire gli interventi di ristrutturazione edilizia ed il recupero degli edifici esistenti, fatti salvi gli interventi di cui all'articolo 6 della legge regionale 18 luglio 2017, n. 7 (Disposizioni per la rigenerazione urbana e per il recupero edilizio), è consentito l'utilizzo del permesso di costruire in deroga agli strumenti urbanistici di cui all'articolo 14, comma 1 bis, del d.p.r. 380/2001, secondo le procedure previste dal medesimo decreto, nel caso di mutamenti della destinazione d'uso verso destinazioni non previste dallo strumento urbanistico, fermo restando il pubblico interesse dell'intervento medesimo. (18b1)
+2. Le disposizioni di cui al comma 1 non si applicano ai manufatti con destinazione agricola.
