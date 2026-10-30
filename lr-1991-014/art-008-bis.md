@@ -1,0 +1,5 @@
+Art. 8 bis (2c)
+(Definizione del quartiere fieristico e certificazione)
+1. La Regione, con apposito regolamento, disciplina i requisiti necessari per l'individuazione dei quartieri fieristici per lo svolgimento di manifestazioni con qualifica nazionale ed internazionale, anche al fine di consentire agli enti organizzatori di ottenere la certificazione di cui al comma 2.
+2. Gli enti organizzatori di manifestazioni fieristiche con qualifica nazionale ed internazionale, ai fini del riconoscimento da parte della Regione delle predette qualifiche, devono avvalersi di certificazione rilasciata da enti o società riconosciute dall'Osservatorio per il Sistema Fieristico Italiano, istituito in sede di Conferenza dei Presidenti delle Regioni e delle Province autonome in data 16 dicembre 2004.
+3. La Regione, al fine di consentire quanto previsto dal comma 2, procede alla determinazione dei sistemi idonei di rilevazione e certificazione dei dati attinenti agli espositori ed ai visitatori di manifestazioni fieristiche con qualifica nazionale ed internazionale.
