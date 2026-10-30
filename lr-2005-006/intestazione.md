@@ -1,0 +1,17 @@
+L.R. 27 Gennaio 2005, n. 6
+Modifiche alla legge regionale 3 gennaio 1986, n. 1 (Regime urbanistico dei terreni di uso civico e relative norme transitorie) e successive modifiche ed alla legge regionale 6 agosto 1999, n. 14 (Organizzazione delle funzioni a livello regionale e locale per la realizzazione del decentramento amministrativo) e successive modifiche (1)
+SOMMARIO
+Art. 1 (Modifica all'articolo 1 della legge regionale 3 gennaio 1986, n. 1)
+Art. 2 (Modifica all'articolo 2 della l.r. 1/1986)
+Art. 3 (Modifica all'articolo 3 della l.r. 1/1986, come modificato dall'articolo 6 della legge regionale 19 dicembre 1995, n. 59)
+Art. 4 (Modifica all'articolo 4 della l.r. 1/1986)
+Art. 5 (Abrogazione dell'articolo 5 della l.r. 1/1986)
+Art. 6 (Abrogazione dell'articolo 6 della l.r. 1/1986, come modificato dall'articolo 27 della legge regionale 7 giugno 1999, n. 6)
+Art. 7 (Abrogazione dell'articolo 7 della l.r. 1/1986)
+Art. 8 (Modifica all'articolo 8 della l.r.1/1986 come modificato dall'articolo 1 della legge regionale 17 dicembre 1996, n. 57)
+Art. 9 (Inserimento dell'articolo 8 bis nella l.r. 1/1986)
+Art. 10 (Inserimento dell'articolo 8 ter nella l.r. 1/1986)
+Art. 11 (Abrogazione dell'articolo 9 della l.r. 1/1986)
+Art. 12 (Modifica all'articolo 37 della legge regionale 6 agosto 1999, n. 14)
+Art. 13 (Disposizione transitoria)
+Art. 14 (Abrogazioni)
