@@ -1,0 +1,2 @@
+ARTICOLO UNICO
+La previsione dell' articolo 3 della legge regionale 12 giugno 1975, n. 67 secondo cui alle lavoratrici madri e' corrisposta una indennita' giornaliera << fino a raggiungere l' 80 per cento della media regionale del salario previsto dai contratti collettivi di lavoro per i salariati fissi >> e' interpretata nel senso che la misura di tale indennita' e' compresa fra lo 0 per cento e l' 80 per cento della media regionale del salario agricolo ed e' determinata dall' Amministrazione regionale in relazione alle disponibilita' finanziarie del proprio bilancio.
