@@ -1,0 +1,131 @@
+{
+ "generated": "2026-11-24T01:20:31Z",
+ "latest": {
+  "consiglio-lazio|italy/lazio/acts": {
+   "attempt": 1,
+   "audit": {
+    "match_neither": 0,
+    "match_new": 5,
+    "match_old": 0,
+    "method": "read again as the law's PDF (\"stampa questa legge\", &pdf=1, the same database's other format; the check reads the HTML page), text by PyMuPDF folded to ASCII letters and digits (its text layer drops accents and apostrophes): the act matches when 90% of its units occur in the PDF's text (tables are laid out differently)",
+    "rows": [
+     {
+      "id": "lr-2026-023",
+      "published": true,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=9554&sv=vigente&pdf=1",
+      "verdict": "unread",
+      "why": "the site's PDF generator answered an error: ERRORE n°4 File : /dati/www/server/prj2/teamlib/PDOFramework/base/html2pdf/_class/parsingHtml.class.php Linea : 119 HTM"
+     },
+     {
+      "id": "lr-2026-024",
+      "published": true,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=9555&sv=vigente&pdf=1",
+      "units_found": 1.0,
+      "verdict": "match_new"
+     },
+     {
+      "id": "lr-2026-025",
+      "published": true,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=9556&sv=vigente&pdf=1",
+      "verdict": "unread",
+      "why": "the site's PDF generator answered an error: ERRORE n°4 File : /dati/www/server/prj2/teamlib/PDOFramework/base/html2pdf/_class/parsingHtml.class.php Linea : 119 HTM"
+     },
+     {
+      "id": "lr-2002-034",
+      "published": false,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=8624&sv=vigente&pdf=1",
+      "units_found": 1.0,
+      "verdict": "match_new"
+     },
+     {
+      "id": "lr-2020-022",
+      "published": false,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=9407&sv=vigente&pdf=1",
+      "units_found": 1.0,
+      "verdict": "match_new"
+     },
+     {
+      "id": "lr-1990-054",
+      "published": false,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=8075&sv=vigente&pdf=1",
+      "units_found": 1.0,
+      "verdict": "match_new"
+     },
+     {
+      "id": "lr-1992-039",
+      "published": false,
+      "read": "https://www.consiglio.regione.lazio.it/?vw=leggiregionalidettaglio&id=7188&sv=vigente&pdf=1",
+      "units_found": 1.0,
+      "verdict": "match_new"
+     }
+    ],
+    "sampled": 7,
+    "unread": 2
+   },
+   "census": {
+    "checked": 67,
+    "current": 1911,
+    "gone": 0,
+    "held": 1911,
+    "newest_at_source": "2026-11-11",
+    "newest_in_repo": "2026-09-30",
+    "pending": 0,
+    "repo": 1911,
+    "source_in_scope": 1922
+   },
+   "check_id": "it-consiglio-lazio-20261124T011546Z",
+   "commits": {
+    "count": 4,
+    "from": "6f437f7c23d04a5337ca238348666c5a9b509bdc",
+    "to": "ccfc2e3e19bdc7db4d020eb5ddb779d3590d2fbc"
+   },
+   "corpus": "italy/lazio/acts",
+   "error": null,
+   "finished": "2026-11-24T01:20:30Z",
+   "flags": [],
+   "gap": 11,
+   "note": "first check: the baseline (nothing to compare with); years read: 2 of 57 (this year and last daily, the others every 30 days); 2534 laws listed, 1907 held + the Statute; 613 listed laws the builder leaves out (repealed as a whole or text omitted, as the page says) are out of scope and not listed; 3 unheld law pages read; compared with the source: 64 held acts (today's 1/30 of the sweep, 0 named by a recent law, 0 no longer listed)",
+   "outcome": "changed",
+   "published": {
+    "added": [
+     "lr-2026-023",
+     "lr-2026-024",
+     "lr-2026-025"
+    ],
+    "changed": [],
+    "removed": []
+   },
+   "requests": 80,
+   "runner": "lawwatch italy (92c4e33d60)",
+   "schema": "lexifina-check/1",
+   "seen": {
+    "added": [],
+    "changed": [],
+    "removed": []
+   },
+   "snapshot": null,
+   "source": "consiglio-lazio",
+   "started": "2026-11-24T01:15:46Z",
+   "unexplained": 0,
+   "update": {
+    "commits": 4,
+    "failed": 0,
+    "later": 0,
+    "new": 3,
+    "same": 0,
+    "versions": 0
+   },
+   "verify": {
+    "cycle_days": 30,
+    "examples": [],
+    "explained": 0,
+    "held": 1908,
+    "method": "each held act's page (the Statute: its PDF) read in this check, parsed by the builder's own parse_law/build_part and compared file for file with main's tip: today's 1/30 of a rotating sweep, the laws a recent law amends, and those no longer listed; acts published by this check counted as compared (the gate checked their folders against the builder's append)",
+    "ok": true,
+    "versions_checked": 67,
+    "versions_differ": 0
+   }
+  }
+ },
+ "schema": "lexifina-check/1"
+}

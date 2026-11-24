@@ -1,0 +1,36 @@
+{
+ "sources": [
+  {
+   "id": "consiglio-lazio",
+   "kind": "legislation",
+   "name": {
+    "en": "Consiglio regionale del Lazio, Leggi regionali (testo coordinato)",
+    "it": "Consiglio regionale del Lazio, Leggi regionali (testo coordinato)"
+   },
+   "url": "https://www.consiglio.regione.lazio.it/?vw=leggiregionali",
+   "reads": {
+    "en": "the year listings of the regional laws (this year and last every day, the others at least every 30 days), the page of each law listed but not held here, and the coordinated text of a thirtieth of the held laws a day, of the laws a new law amends, and the Statute's PDF in its turn",
+    "it": "gli elenchi annuali delle leggi regionali (quest'anno e l'anno scorso ogni giorno, gli altri almeno ogni 30 giorni), la pagina di ogni legge elencata ma non presente qui e il testo coordinato di un trentesimo delle leggi presenti qui ogni giorno, delle leggi che una nuova legge modifica, e a turno il PDF dello Statuto"
+   },
+   "folders": [
+    "lr/",
+    "statuto/"
+   ],
+   "schedule": "daily",
+   "state": "watched",
+   "corpora": [
+    "italy/lazio/acts"
+   ],
+   "interval": 3.2,
+   "allow": [
+    "lr/",
+    "statuto/",
+    "data/paths.json"
+   ],
+   "note": {
+    "en": "current text only, as the repository is built: a changed text is a new version dated the day it was read, credited to the Consiglio as publisher; laws the database marks as repealed as a whole are left out (one repealed after it was added is listed as no longer at the source)",
+    "it": "solo testo vigente, come il repository è costruito: un testo modificato è una nuova versione datata il giorno della lettura, attribuita al Consiglio come editore; le leggi che la banca dati indica come abrogate per intero sono escluse (una abrogata dopo l'inserimento risulta non più alla fonte)"
+   }
+  }
+ ]
+}
